@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning C - Data Structure, Java and C# Programming Language
 - 💞️ I’m looking to collaborate on (not rn still learning probably when i want to lol)
 
-*** Contact:
+*** <color =red>Contact</red>:
 
 [<img align="left" alt="Tan Knight | Youtube" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/youtube.svg" />][youtube]
 [<img align="left" alt="Tan Knight | Instagram" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/instagram.svg" />][instagram]
