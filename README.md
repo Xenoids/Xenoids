@@ -24,6 +24,7 @@
 [<img align="left" alt="Tan Knight | Linkedin" width="30px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/linkedin.svg" />][linkedin]
 [<img align="left" alt="Tan Knight | Facebook" width="30px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/facebook.svg" />][facebook]
 [<img align="left" alt="Tan Knight | Tiktok" width="30px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/tiktok.svg" />][tiktok]
+[<img align="left" alt="Tan Knight | Github" width="30px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/github.svg" />][github]
 
 <br></br>
 
@@ -64,6 +65,7 @@
 [linkedin]: https://id.linkedin.com/in/nicholas-valenthinus-tanoto-0ab0a61b7
 [facebook]: https://www.facebook.com/nicholas.tanoto.1
 [tiktok]:https://www.tiktok.com/@tanknightgt
+[github]:https://www.github/com/Xenoids
 [spotify]: https://open.spotify.com/user/31yp5jq7iowjpve2m3y4hcc7qdc4?si=fZtZ3fhARxS03W43B6HwiQ
 [C]: https://en.wikipedia.org/wiki/C_(programming_language)
 [java]: https://en.wikipedia.org/wiki/Java_(programming_language)
