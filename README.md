@@ -26,6 +26,7 @@
 [<img align="left" alt="Tan Knight | Tiktok" width="30px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/tiktok.svg" />][tiktok]
 [<img align="left" alt="Tan Knight | Github" width="30px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/github.svg" />][github]
 
+<br>
 
 # 🖥️ Programming Language That I Use:
 
@@ -35,11 +36,8 @@
 
 [<img align="left" alt="C# Language" width="50px" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/csharp/csharp.png" />][C#]
 
-<br></br>
 
-
----
-### 📺 Our Youtube Videos [ Updated ]
+# 📺 Our Youtube Videos [ Updated ]
 <!-- YOUTUBE:START -->
 - [MEMULAI PERJALANAN DARI NOOB SAMPAI KAYA | ROAD TO KAYA #1 | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=dw724THlvGM)
 - [NGEBUAT WORLD AUTO HARVEST & AUTO PLANT DENGAN PLATFORM | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=QwE8LXhez8U)
@@ -48,8 +46,7 @@
 - [WAKTUNYA COLLECT DL! SSP PROFIT DAN LAZY PROFIT PANDEMIC | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=mmCqvRMyEiw)
 <!-- YOUTUBE:END -->
 
----
-### 📈 My Stats:
+# 📈 My Stats:
 
 <div align="center">
 <img src="https://github-readme-stats.vercel.app/api?username=Xenoids&theme=radical&show_icons=true"> 
@@ -59,8 +56,7 @@
 <img src="https://github.com/anuraghazra/github-readme-stats">
 </div>
           
----
-### [<img align ="left" width ="30px" src="https://simpleicons.org/icons/spotify.svg" />][spotify]Recent Playing Song:
+# [<img align ="left" width ="30px" src="https://simpleicons.org/icons/spotify.svg" />][spotify]Recent Playing Song:
 [![Spotify](https://novatorem-4m3ug0q42-xenoids.vercel.app/api/spotify)](https://open.spotify.com/user/c15cf55f9d1e42e4b2acf15f9f4c428b)
 
 [youtube]: https://www.youtube.com/TanKnight
@@ -74,3 +70,5 @@
 [java]: https://en.wikipedia.org/wiki/Java_(programming_language)
 [C#]: https://en.wikipedia.org/wiki/C_Sharp_(programming_language)
 [iza]: https://kamisamaday.fandom.com/wiki/Kyouko_Izanami
+
+---
