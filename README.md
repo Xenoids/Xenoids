@@ -28,11 +28,11 @@
 ---
 ### Programming Language That i use:
 
-<img align="left" alt="C Language" width="50px" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/c/c.png" />
+[<img align="left" alt="C Language" width="50px" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/c/c.png" />][C]
 
-<img align="left" alt="Java Language" width="50px" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/java/java.png" />
+[<img align="left" alt="Java Language" width="50px" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/java/java.png" />][java]
 
-<img align="left" alt="C# Language" width="50px" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/csharp/csharp.png" />
+[<img align="left" alt="C# Language" width="50px" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/csharp/csharp.png" />][C#]
 
 <br></br>
 
@@ -62,4 +62,7 @@
 [instagram]: https://www.instagram.com/not_n.v.t
 [linkedin]: https://id.linkedin.com/in/nicholas-valenthinus-tanoto-0ab0a61b7
 [spotify]: https://open.spotify.com/user/31yp5jq7iowjpve2m3y4hcc7qdc4?si=fZtZ3fhARxS03W43B6HwiQ
+[C]: https://en.wikipedia.org/wiki/C_(programming_language)
+[java]: https://en.wikipedia.org/wiki/Java_(programming_language)
+[C#]: https://en.wikipedia.org/wiki/C_Sharp_(programming_language)
 
