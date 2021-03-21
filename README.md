@@ -52,10 +52,13 @@
 
 ---
 ### 📈 My Stats:
+<p align="center">
 ![Xenoids's GitHub stats](https://github-readme-stats.vercel.app/api?username=Xenoids&theme=radical&show_icons=true) 
-
+</p>
+<p align="center>
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=Xenoids&layout=compact)](https://github.com/anuraghazra/github-readme-stats)
-
+</p>
+          
 ---
 ### [<img align ="left" width ="30px" src="https://simpleicons.org/icons/spotify.svg" />][spotify]Recent Playing Song:
 [![Spotify](https://novatorem-4m3ug0q42-xenoids.vercel.app/api/spotify)](https://open.spotify.com/user/c15cf55f9d1e42e4b2acf15f9f4c428b)
