@@ -18,7 +18,7 @@
  [![ezgif com-gif-maker](https://user-images.githubusercontent.com/71064059/111902499-fa5a8e00-89fa-11eb-9c40-fa343fe26ada.gif)][iza]
 
 
-### 🌐Connect with Us!:
+### 🌐 Connect with Us!:
 [<img align="left" alt="Tan Knight | Youtube" width="30px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/youtube.svg" />][youtube]
 [<img align="left" alt="Tan Knight | Instagram" width="30px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/instagram.svg" />][instagram]
 [<img align="left" alt="Tan Knight | Linkedin" width="30px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/linkedin.svg" />][linkedin]
@@ -28,7 +28,7 @@
 <br></br>
 
 ---
-### 🖥️Programming Language That I Use:
+### 🖥️ Programming Language That I Use:
 
 [<img align="left" alt="C Language" width="50px" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/c/c.png" />][C]
 
@@ -50,7 +50,7 @@
 <!-- YOUTUBE:END -->
 
 ---
-### 📈My Stats:
+### 📈 My Stats:
 ![Xenoids's GitHub stats](https://github-readme-stats.vercel.app/api?username=Xenoids&theme=radical&show_icons=true) 
 
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=Xenoids&layout=compact)](https://github.com/anuraghazra/github-readme-stats)
