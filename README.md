@@ -5,7 +5,7 @@
 - 💞️ I’m looking to collaborate on (not rn still learning probably when i want to lol)
 
 ![ezgif com-gif-maker](https://user-images.githubusercontent.com/71064059/111902499-fa5a8e00-89fa-11eb-9c40-fa343fe26ada.gif)
-<img src ="https://static.wikia.nocookie.net/e68890e4b8bae7a59ee79a84e982a3e5a4a9/images/e/e7/Img_kyouko.png/revision/latest/scale-to-width-down/540?cb=20200726023533&path-prefix=zh" width="250" height="250" / >
+<img src ="https://static.zerochan.net/Izanami.Kyouko.full.3018657.png" width="250" height="250" / >
 
 
 ---
