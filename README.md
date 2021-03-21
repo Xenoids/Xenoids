@@ -6,7 +6,7 @@
 <br></br>
 <table align="right" border="1px" margin-top="50px">
   <tr>
-    <td><img src="https://static.zerochan.net/Izanami.Kyouko.full.3018657.png"  align="right" /></td>
+    <td><img src="https://static.zerochan.net/Izanami.Kyouko.full.3018657.png" width="250" height="250" align="right" /></td>
   </tr>
   </table>
   
