@@ -55,7 +55,8 @@
 </div>
 
 <div align="center">
-<img src="https://github.com/anuraghazra/github-readme-stats">
+<a href="https://github.com/anuraghazra/github-readme-stats">
+  <img src="https://github-readme-stats.vercel.app/api/top-langs/?username=Xenoids&layout=compact">
 </div>
           
 # [<img align ="left" width ="30px" src="https://simpleicons.org/icons/spotify.svg" />][spotify]Recent Playing Song:
