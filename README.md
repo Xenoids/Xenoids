@@ -6,7 +6,7 @@
 
 ![ezgif com-gif-maker](https://user-images.githubusercontent.com/71064059/111902499-fa5a8e00-89fa-11eb-9c40-fa343fe26ada.gif)
 
-<img src="https://user-images.githubusercontent.com/71064059/111904217-f0d52400-8a02-11eb-9cf7-dde164effec8.png" width="250" height="250" />
+<img src="https://user-images.githubusercontent.com/71064059/111904217-f0d52400-8a02-11eb-9cf7-dde164effec8.png" width="300" height="500" />
 ![Img_kyouko](https://user-images.githubusercontent.com/71064059/111904217-f0d52400-8a02-11eb-9cf7-dde164effec8.png)
 
 ---
