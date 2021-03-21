@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning C - Data Structure, Java and C# Programming Language
 - 💞️ I’m looking to collaborate on (not rn still learning probably when i want to lol)
 
-<div class="tenor-gif-embed" data-postid="18876256" data-share-method="host" data-width="100%" data-aspect-ratio="1.7785714285714287"><a href="https://tenor.com/view/kamisama-ni-natta-hi-izanami-kyouko-playing-piano-piano-anime-gif-18876256">Kamisama Ni Natta Hi Izanami Kyouko GIF</a> from <a href="https://tenor.com/search/kamisamaninattahi-gifs">Kamisamaninattahi GIFs</a></div><script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+<a href="https://tenor.com/view/kamisama-ni-natta-hi-izanami-kyouko-playing-piano-piano-anime-gif-18876256">
 
 ---
 ### Contact:
