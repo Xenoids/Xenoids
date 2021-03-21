@@ -3,9 +3,9 @@
 - 👀 I’m interested in Playing Game and Coding (if i wanted too lol)
 - 🌱 I’m currently learning C - Data Structure, Java and C# Programming Language
 - 💞️ I’m looking to collaborate on (not rn still learning probably when i want to lol)
-<kbd>
+
 <img src="https://user-images.githubusercontent.com/71064059/111904217-f0d52400-8a02-11eb-9cf7-dde164effec8.png" width="300" height="500" align="right" margin-top="100" />
-  </kbd>
+
 ![ezgif com-gif-maker](https://user-images.githubusercontent.com/71064059/111902499-fa5a8e00-89fa-11eb-9c40-fa343fe26ada.gif)
 
 
