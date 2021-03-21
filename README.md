@@ -67,7 +67,7 @@
  </div>
   
   # Appreciation
-  [<img align="center" src="https://user-images.githubusercontent.com/71064059/111909429-7a442080-8a1a-11eb-9789-bafa5154ad12.gif">][clannad]
+  [<img align="center" src="https://user-images.githubusercontent.com/71064059/111909429-7a442080-8a1a-11eb-9789-bafa5154ad12.gif" />][clannad]
                                              
  <!---Reference--->                                      
 [youtube]: https://www.youtube.com/TanKnight
