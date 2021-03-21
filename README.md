@@ -60,10 +60,13 @@
 </div>
           
 # [<img align ="left" width ="30px" src="https://simpleicons.org/icons/spotify.svg" />][spotify]Recent Playing Song:
-<div align="center>
+
+<div align="center">
             <a href="https://open.spotify.com/user/c15cf55f9d1e42e4b2acf15f9f4c428b">
   <img src="https://novatorem-4m3ug0q42-xenoids.vercel.app/api/spotify">
-            </div>
+ </div>
+                                             
+ <!---Reference--->                                      
 [youtube]: https://www.youtube.com/TanKnight
 [instagram]: https://www.instagram.com/not_n.v.t
 [linkedin]: https://id.linkedin.com/in/nicholas-valenthinus-tanoto-0ab0a61b7
