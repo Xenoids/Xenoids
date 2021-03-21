@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Xenoids
+- 👋 Hi, I’m @Xenoids a.k.a TanKnight
 - 👀 I’m interested in Playing Game and Coding (if i wanted too lol)
 - 🌱 I’m currently learning C - Data Structure, Java and C# Programming Language
 - 💞️ I’m looking to collaborate on (not rn still learning probably when i want to lol)
