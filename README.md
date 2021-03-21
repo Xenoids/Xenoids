@@ -40,7 +40,7 @@
 
 
 ---
-### 📺 Our Youtube Videos
+### 📺 Our Youtube Videos [ Updated ]
 <!-- YOUTUBE:START -->
 - [MEMULAI PERJALANAN DARI NOOB SAMPAI KAYA | ROAD TO KAYA #1 | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=dw724THlvGM)
 - [NGEBUAT WORLD AUTO HARVEST & AUTO PLANT DENGAN PLATFORM | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=QwE8LXhez8U)
