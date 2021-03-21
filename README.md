@@ -66,7 +66,7 @@
   <img src="https://novatorem-4m3ug0q42-xenoids.vercel.app/api/spotify">
  </div>
   
-  # Appreciation
+  # 🥳 Appreciation
   <div align="center">
   <img src="https://user-images.githubusercontent.com/71064059/111909429-7a442080-8a1a-11eb-9789-bafa5154ad12.gif" />
   </div>
