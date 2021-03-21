@@ -9,7 +9,7 @@
     <th>That's my UwU</th>
   </tr>
   <tr>
-    <td><img src="https://static.zerochan.net/Izanami.Kyouko.full.3018657.png" width="300" height="309" align="right" /></td>
+    <td>[<img src="https://static.zerochan.net/Izanami.Kyouko.full.3018657.png" width="300" height="272" align="right" />][iza]</td>
   </tr>
   </table>
   
@@ -64,4 +64,4 @@
 [C]: https://en.wikipedia.org/wiki/C_(programming_language)
 [java]: https://en.wikipedia.org/wiki/Java_(programming_language)
 [C#]: https://en.wikipedia.org/wiki/C_Sharp_(programming_language)
-
+[iza]: https://kamisamaday.fandom.com/wiki/Kyouko_Izanami
