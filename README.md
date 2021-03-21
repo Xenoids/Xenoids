@@ -1,4 +1,4 @@
-<h1>👋 Hi, I’m Xenoids a.k.a part of [TanKnight][youtube]</h1>
+<h1>👋 Hi, I’m Xenoids a.k.a part of TanKnight</h1>
 ---
 - 👀 I’m interested in Playing Game and Coding (if i wanted too lol)
 - 🌱 I’m currently learning C - Data Structure, Java and C# Programming Language
