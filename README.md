@@ -41,7 +41,7 @@
 
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=Xenoids&layout=compact)](https://github.com/anuraghazra/github-readme-stats)
 
-
+[![Spotify](https://novatorem-4m3ug0q42-xenoids.vercel.app/api/spotify)](https://open.spotify.com/user/c15cf55f9d1e42e4b2acf15f9f4c428b)
 
 [youtube]: https://www.youtube.com/TanKnight
 [instagram]: https://www.instagram.com/not_n.v.t
