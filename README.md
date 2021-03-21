@@ -35,7 +35,7 @@
 <!-- YOUTUBE:END -->
 
 ---
-### <img align ="left" width ="30px"src="https://simpleicons.org/icons/spotify.svg" />My Stats:
+### <img align ="left" width ="30px" src="https://simpleicons.org/icons/spotify.svg" />My Stats:
 ![Xenoids's GitHub stats](https://github-readme-stats.vercel.app/api?username=Xenoids&theme=radical&show_icons=true)
 
 
