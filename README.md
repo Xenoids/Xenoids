@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning C - Data Structure, Java and C# Programming Language
 - 💞️ I’m looking to collaborate on (not rn still learning probably when i want to lol)
 <br></br>
-<table align="right" border="1px" margin-top="200px">
+<table align="right" border="1px" margin-top="50px">
   <tr>
     <td><img src="https://user-images.githubusercontent.com/71064059/111904217-f0d52400-8a02-11eb-9cf7-dde164effec8.png" width="300" height="500" align="right" /></td>
   </tr>
@@ -17,11 +17,13 @@
 <br></br>
 
 
-### Contact:
 
+
+### Contact:
 [<img align="left" alt="Tan Knight | Youtube" width="30px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/youtube.svg" />][youtube]
 [<img align="left" alt="Tan Knight | Instagram" width="30px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/instagram.svg" />][instagram]
 [<img align="left" alt="Tan Knight | Linkedin" width="30px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/linkedin.svg" />][linkedin]
+
 <br></br>
 
 ---
