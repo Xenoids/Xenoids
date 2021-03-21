@@ -5,7 +5,10 @@
 - 💞️ I’m looking to collaborate on (not rn still learning probably when i want to lol)
 <br></br>
 <table align="right" border="1px" margin-top="50px">
-  <tr>That's my UwU
+  <tr>
+    <th>That's my UwU</th>
+  </tr>
+  <tr>
     <td><img src="https://static.zerochan.net/Izanami.Kyouko.full.3018657.png" width="300" height="309" align="right" /></td>
   </tr>
   </table>
