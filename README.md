@@ -67,9 +67,9 @@
  </div>
   
   # Appreciation
-  
+  <div align="center">
   [![tenor (1)](https://user-images.githubusercontent.com/71064059/111909429-7a442080-8a1a-11eb-9789-bafa5154ad12.gif)][clannad]
-
+  </div>
                                              
  <!---Reference--->                                      
 [youtube]: https://www.youtube.com/TanKnight
