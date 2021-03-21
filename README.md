@@ -14,5 +14,5 @@
 
 [youtube]: https://www.youtube.com/TanKnight
 [instagram]: https://www.instagram.com/not_n.v.t
-[linkedin] : https://id.linkedin.com/in/nicholas-valenthinus-tanoto-0ab0a61b7
+[linkedin]: https://id.linkedin.com/in/nicholas-valenthinus-tanoto-0ab0a61b7
 
