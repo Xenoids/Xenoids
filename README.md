@@ -67,9 +67,9 @@
  </div>
   
   # Appreciation
-  [<p align="center">
+  <div align="center">
   <img src="https://user-images.githubusercontent.com/71064059/111909429-7a442080-8a1a-11eb-9789-bafa5154ad12.gif" />
-   </p>][clannad]
+  </div>
    
  <!---Reference--->                                      
 [youtube]: https://www.youtube.com/TanKnight
@@ -83,6 +83,6 @@
 [java]: https://en.wikipedia.org/wiki/Java_(programming_language)
 [C#]: https://en.wikipedia.org/wiki/C_Sharp_(programming_language)
 [iza]: https://kamisamaday.fandom.com/wiki/Kyouko_Izanami
-[clannad]: https://myanimelist.net/anime/2167/Clannad
+
 
 ---
