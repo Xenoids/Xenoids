@@ -6,7 +6,7 @@
 <br></br>
 <table align="right" border="1px" margin-top="50px">
   <tr>
-    <td><img src="https://user-images.githubusercontent.com/71064059/111904217-f0d52400-8a02-11eb-9cf7-dde164effec8.png" width="300" height="500" align="right" /></td>
+    <td><img src="https://static.zerochan.net/Izanami.Kyouko.full.3018657.png" width="300" height="500" align="right" /></td>
   </tr>
   </table>
   
@@ -26,7 +26,7 @@
 <br></br>
 
 ---
-### Programming Language That i use:
+### Programming Language That I Use:
 
 [<img align="left" alt="C Language" width="50px" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/c/c.png" />][C]
 
