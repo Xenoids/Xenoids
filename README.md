@@ -9,7 +9,9 @@
     <th>That's my UwU</th>
   </tr>
   <tr>
-    [<td><img src="https://static.zerochan.net/Izanami.Kyouko.full.3018657.png" width="300" height="272" align="right" /></td>][iza]
+    <td>
+    [<img src="https://static.zerochan.net/Izanami.Kyouko.full.3018657.png" width="300" height="272" align="right" />][iza]
+    </td>]
   </tr>
   </table>
   
