@@ -5,7 +5,7 @@
 - 💞️ I’m looking to collaborate on (not rn still learning probably when i want to lol)
 
 ![ezgif com-gif-maker](https://user-images.githubusercontent.com/71064059/111902499-fa5a8e00-89fa-11eb-9c40-fa343fe26ada.gif)
-<img src ="https://user-images.githubusercontent.com/71064059/111904016-e36b6a00-8a01-11eb-85fc-f91ef5fb4c65.png" width="200" height="400")
+<img src ="https://user-images.githubusercontent.com/71064059/111904016-e36b6a00-8a01-11eb-85fc-f91ef5fb4c65.png" width="200" height="400" / >
 
 
 ---
