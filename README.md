@@ -65,6 +65,11 @@
             <a href="https://open.spotify.com/user/c15cf55f9d1e42e4b2acf15f9f4c428b">
   <img src="https://novatorem-4m3ug0q42-xenoids.vercel.app/api/spotify">
  </div>
+  
+  # Appreciation
+  
+  [![tenor (1)](https://user-images.githubusercontent.com/71064059/111909429-7a442080-8a1a-11eb-9789-bafa5154ad12.gif)][clannad]
+
                                              
  <!---Reference--->                                      
 [youtube]: https://www.youtube.com/TanKnight
@@ -78,5 +83,6 @@
 [java]: https://en.wikipedia.org/wiki/Java_(programming_language)
 [C#]: https://en.wikipedia.org/wiki/C_Sharp_(programming_language)
 [iza]: https://kamisamaday.fandom.com/wiki/Kyouko_Izanami
+[clannad]: https://myanimelist.net/anime/2167/Clannad
 
 ---
