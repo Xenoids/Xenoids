@@ -10,12 +10,12 @@
   </tr>
   <tr>
     <td>
-    [<img src="https://static.zerochan.net/Izanami.Kyouko.full.3018657.png" width="300" height="272" align="right" />][iza]
-    </td>]
+    <img src="https://static.zerochan.net/Izanami.Kyouko.full.3018657.png" width="300" height="272" align="right" />
+    </td>
   </tr>
   </table>
   
- ![ezgif com-gif-maker](https://user-images.githubusercontent.com/71064059/111902499-fa5a8e00-89fa-11eb-9c40-fa343fe26ada.gif)
+ [![ezgif com-gif-maker](https://user-images.githubusercontent.com/71064059/111902499-fa5a8e00-89fa-11eb-9c40-fa343fe26ada.gif)][iza]
 
 
 ### Connect with Us!:
