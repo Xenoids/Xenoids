@@ -35,16 +35,17 @@
 <!-- YOUTUBE:END -->
 
 ---
-### <img align ="left" width ="30px" src="https://simpleicons.org/icons/spotify.svg" />My Stats:
+### My Stats:
 ![Xenoids's GitHub stats](https://github-readme-stats.vercel.app/api?username=Xenoids&theme=radical&show_icons=true)
 
 
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=Xenoids&layout=compact)](https://github.com/anuraghazra/github-readme-stats)
 
-### Currently Playing Song:
+### [<img align ="left" width ="30px" src="https://simpleicons.org/icons/spotify.svg" />][spotify]Currently Playing Song:
 [![Spotify](https://novatorem-4m3ug0q42-xenoids.vercel.app/api/spotify)](https://open.spotify.com/user/c15cf55f9d1e42e4b2acf15f9f4c428b)
 
 [youtube]: https://www.youtube.com/TanKnight
 [instagram]: https://www.instagram.com/not_n.v.t
 [linkedin]: https://id.linkedin.com/in/nicholas-valenthinus-tanoto-0ab0a61b7
+[spotify]: https://open.spotify.com/user/c15cf55f9d1e42e4b2acf15f9f4c428b
 
