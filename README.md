@@ -11,7 +11,6 @@
 [<img align="left" alt="Tan Knight | Linkedin" width="30px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/linkedin.svg" />][linkedin]
 
 <br></br>
-
 ---
 ### Programming Language That i use:
 
