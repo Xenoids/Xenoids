@@ -18,7 +18,7 @@
  [![ezgif com-gif-maker](https://user-images.githubusercontent.com/71064059/111902499-fa5a8e00-89fa-11eb-9c40-fa343fe26ada.gif)][iza]
 
 
-# 🌐 ~ 𝓒𝓸𝓷𝓷𝓮𝓬𝓽 𝓦𝓲𝓽𝓱 𝓤𝓼! ~ 🌐
+<h2 align="center">🌐 ~ 𝓒𝓸𝓷𝓷𝓮𝓬𝓽 𝓦𝓲𝓽𝓱 𝓤𝓼! ~ 🌐</h2>
 [<img align="left" alt="Tan Knight | Youtube" width="30px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/youtube.svg" />][youtube]
 [<img align="left" alt="Tan Knight | Instagram" width="30px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/instagram.svg" />][instagram]
 [<img align="left" alt="Tan Knight | Linkedin" width="30px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/linkedin.svg" />][linkedin]
@@ -29,7 +29,7 @@
 <br>
 <br>
 
-# 🖥️ ~ 𝓟𝓻𝓸𝓰𝓻𝓪𝓶𝓶𝓲𝓷𝓰 𝓛𝓪𝓷𝓰𝓾𝓪𝓰𝓮 𝓣𝓱𝓪𝓽 𝓘 𝓤𝓼𝓮 ~ 🖥️
+<h2 align="center">🖥️ ~ 𝓟𝓻𝓸𝓰𝓻𝓪𝓶𝓶𝓲𝓷𝓰 𝓛𝓪𝓷𝓰𝓾𝓪𝓰𝓮 𝓣𝓱𝓪𝓽 𝓘 𝓤𝓼𝓮 ~ 🖥️</h2>
 
 [<img align="left" alt="C Language" width="50px" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/c/c.png" />][C]
 
@@ -41,7 +41,7 @@
 </br>
 </br>
 
-# 📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ]~ 📺
+<h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 <!-- YOUTUBE:START -->
 - [PROFITAN INI HARUS DILAKUKAN OLEH PEMULA! | ROAD TO KAYA #2 | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=Cq6nuvs32gw)
 - [MEMULAI PERJALANAN DARI NOOB SAMPAI KAYA | ROAD TO KAYA #1 | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=dw724THlvGM)
