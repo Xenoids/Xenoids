@@ -63,7 +63,7 @@
   <img src="https://github-readme-stats.vercel.app/api/top-langs/?username=Xenoids&layout=compact">
 </div>
           
-[<img align ="left" width ="40px" src="https://simpleicons.org/icons/spotify.svg"/>][spotify]<h2>𝓡𝓮𝓬𝓮𝓷𝓽 𝓟𝓵𝓪𝔂𝓲𝓷𝓰 𝓢𝓸𝓷𝓰:</h2>
+# [<img align ="left" width ="40px" src="https://simpleicons.org/icons/spotify.svg"/>][spotify]𝓡𝓮𝓬𝓮𝓷𝓽 𝓟𝓵𝓪𝔂𝓲𝓷𝓰 𝓢𝓸𝓷𝓰:
 
 <div align="center">
             <a href="https://open.spotify.com/user/c15cf55f9d1e42e4b2acf15f9f4c428b">
