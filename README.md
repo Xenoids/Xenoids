@@ -86,6 +86,8 @@
  
 <h2 align ="center">🥳 ~ 𝓐𝓹𝓹𝓻𝓮𝓬𝓲𝓪𝓽𝓲𝓸𝓷 ~ 🥳</h2>
            
+<br>
+
   <div align="center">
   <img src="https://user-images.githubusercontent.com/71064059/111909429-7a442080-8a1a-11eb-9789-bafa5154ad12.gif" />
   </div>
