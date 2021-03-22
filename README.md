@@ -69,7 +69,9 @@
 
 <div align="right">
  I Love to listen japanese music especially Anime and Tokusatsu :D.</br>
-  Could be Opening, Ending, OST ~ 
+  Could be Opening, Ending, OST ~ </br>
+  Favorite Anime? Clannad & Kamisama ni natta Hi >.< </br> 
+  Favorite Tokusatsu? Ultraman Zero, Nexus & Kamen rider Ex-Aid ^0^
 </div>
 
 <div align="left">
