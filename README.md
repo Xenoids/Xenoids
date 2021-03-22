@@ -69,12 +69,12 @@
 
 
  <p>
-            <a href="https://open.spotify.com/user/c15cf55f9d1e42e4b2acf15f9f4c428b">
+  <a href="https://open.spotify.com/user/c15cf55f9d1e42e4b2acf15f9f4c428b">
   <img align="left" src="https://novatorem-4m3ug0q42-xenoids.vercel.app/api/spotify">
 </p>
-  
-<div align="right">
-  
+
+<p></p>
+<div align="right">  
  I Love to listen japanese music especially Anime and Tokusatsu :D.</br>
   Could be Opening, Ending, OST ~ </br>
   Favorite Anime? Clannad & Kamisama ni natta Hi >.< </br> 
