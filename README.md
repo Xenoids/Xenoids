@@ -72,7 +72,7 @@
   <img src="https://novatorem-4m3ug0q42-xenoids.vercel.app/api/spotify">
  </div>
   
-<p align="right">I Love to listen japanese music especially Anime and Tokusatsu :D. Could be Opening, Ending, OST ~ </p>
+<div align="right">I Love to listen japanese music especially Anime and Tokusatsu :D. Could be Opening, Ending, OST ~ </div>
 
 <h2 align ="center">🥳 ~ 𝓐𝓹𝓹𝓻𝓮𝓬𝓲𝓪𝓽𝓲𝓸𝓷 ~ 🥳</h2>
            
