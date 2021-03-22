@@ -67,12 +67,19 @@
           
 # [<img align ="left" width ="40px" src="https://simpleicons.org/icons/spotify.svg"/>][spotify]𝓡𝓮𝓬𝓮𝓷𝓽 𝓟𝓵𝓪𝔂𝓲𝓷𝓰 𝓢𝓸𝓷𝓰:
 
-<li align="right">I Love to listen japanese music especially Anime and Tokusatsu :D. Could be Opening, Ending, OST ~ </li>
+<div align="right">
+ I Love to listen japanese music especially Anime and Tokusatsu :D.</br>
+  Could be Opening, Ending, OST ~ 
+</div>
 
 <div align="left">
             <a href="https://open.spotify.com/user/c15cf55f9d1e42e4b2acf15f9f4c428b">
   <img src="https://novatorem-4m3ug0q42-xenoids.vercel.app/api/spotify">
- </div>
+</div>
+
+
+
+
   
   
 
