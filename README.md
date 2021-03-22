@@ -69,10 +69,9 @@
             <a href="https://open.spotify.com/user/c15cf55f9d1e42e4b2acf15f9f4c428b">
   <img src="https://novatorem-4m3ug0q42-xenoids.vercel.app/api/spotify">
  </div>
-  <div align="center>
-  # 🥳 ~ 𝓐𝓹𝓹𝓻𝓮𝓬𝓲𝓪𝓽𝓲𝓸𝓷 ~ 🥳
-              </div>
-              
+
+# 🥳 ~ 𝓐𝓹𝓹𝓻𝓮𝓬𝓲𝓪𝓽𝓲𝓸𝓷 ~ 🥳
+           
   <div align="center">
   <img src="https://user-images.githubusercontent.com/71064059/111909429-7a442080-8a1a-11eb-9789-bafa5154ad12.gif" />
   </div>
