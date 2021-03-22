@@ -73,7 +73,7 @@
     </p>
 
 
-<p align="right">
+<p align="right" color="black">
   <a href="https://myanimelist.net/anime/41930/Kamisama_ni_Natta_Hi">
   I Love to listen japanese music especially Anime and Tokusatsu :D.</br>
   Could be Opening, Ending, OST ~ </br>
