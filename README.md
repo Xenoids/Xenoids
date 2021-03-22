@@ -1,4 +1,4 @@
-<h1>👋 Hi, I’m Xenoids A.K.A part of Tan Knight</h1>
+<h1>(っ◔◡◔)っ ♥ 👋 Hi, I’m Xenoids A.K.A part of Tan Knight ♥</h1>
 
 - 👀 I’m interested in Playing Game and Coding (if i wanted too lol)
 - 🌱 I’m currently learning C - Data Structure, Java and C# Programming Language
