@@ -72,13 +72,14 @@
   <img align="left" src="https://novatorem-4m3ug0q42-xenoids.vercel.app/api/spotify">
     </p>
 
+#
 
-<div align="right">
-<p> I Love to listen japanese music especially Anime and Tokusatsu :D.</br>
+<p align="right">
+  I Love to listen japanese music especially Anime and Tokusatsu :D.</br>
   Could be Opening, Ending, OST ~ </br>
-  Favorite Anime? Clannad & Kamisama ni natta Hi >.< </br> 
-  Favorite Tokusatsu? Ultraman Zero, Nexus & Kamen rider Ex-Aid ^0^</p>
-</div>
+  Favorite Anime? Clannad & Kamisama Ni Natta Hi >.<</br> 
+  Favorite Tokusatsu? Ultraman Zero, Nexus & Kamen rider Ex-Aid ^0^
+</p>
 
  
 
