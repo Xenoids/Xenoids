@@ -67,6 +67,12 @@
           
 # [<img align ="left" width ="40px" src="https://simpleicons.org/icons/spotify.svg"/>][spotify]𝓡𝓮𝓬𝓮𝓷𝓽 𝓟𝓵𝓪𝔂𝓲𝓷𝓰 𝓢𝓸𝓷𝓰:
 
+
+ <p>
+            <a href="https://open.spotify.com/user/c15cf55f9d1e42e4b2acf15f9f4c428b">
+  <img align="left" src="https://novatorem-4m3ug0q42-xenoids.vercel.app/api/spotify">
+</p>
+  
 <div align="right">
   
  I Love to listen japanese music especially Anime and Tokusatsu :D.</br>
@@ -75,10 +81,7 @@
   Favorite Tokusatsu? Ultraman Zero, Nexus & Kamen rider Ex-Aid ^0^
 </div>
 
-  <p>
-            <a href="https://open.spotify.com/user/c15cf55f9d1e42e4b2acf15f9f4c428b">
-  <img align="left" src="https://novatorem-4m3ug0q42-xenoids.vercel.app/api/spotify">
-</p>
+ 
 
 
 
