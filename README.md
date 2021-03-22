@@ -63,14 +63,16 @@
   <img src="https://github-readme-stats.vercel.app/api/top-langs/?username=Xenoids&layout=compact">
 </div>
           
-# [<img align ="left" width ="40px" src="https://simpleicons.org/icons/spotify.svg"/>][spotify]Recent Playing Song:
+# [<img align ="left" width ="40px" src="https://simpleicons.org/icons/spotify.svg"/>][spotify]𝓡𝓮𝓬𝓮𝓷𝓽 𝓟𝓵𝓪𝔂𝓲𝓷𝓰 𝓢𝓸𝓷𝓰:
 
 <div align="center">
             <a href="https://open.spotify.com/user/c15cf55f9d1e42e4b2acf15f9f4c428b">
   <img src="https://novatorem-4m3ug0q42-xenoids.vercel.app/api/spotify">
  </div>
-  
+  <div align="center>
   # 🥳 ~ 𝓐𝓹𝓹𝓻𝓮𝓬𝓲𝓪𝓽𝓲𝓸𝓷 ~ 🥳
+              </div>
+              
   <div align="center">
   <img src="https://user-images.githubusercontent.com/71064059/111909429-7a442080-8a1a-11eb-9789-bafa5154ad12.gif" />
   </div>
