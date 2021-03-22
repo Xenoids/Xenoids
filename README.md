@@ -43,6 +43,7 @@
 </br>
 
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
+
 <!-- YOUTUBE:START -->
 - [PROFITAN INI HARUS DILAKUKAN OLEH PEMULA! | ROAD TO KAYA #2 | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=Cq6nuvs32gw)
 - [MEMULAI PERJALANAN DARI NOOB SAMPAI KAYA | ROAD TO KAYA #1 | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=dw724THlvGM)
