@@ -43,11 +43,11 @@
 
 # 📺 Our Youtube Videos [ Updated ]
 <!-- YOUTUBE:START -->
+- [PROFITAN INI HARUS DILAKUKAN OLEH PEMULA! | ROAD TO KAYA #2 | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=Cq6nuvs32gw)
 - [MEMULAI PERJALANAN DARI NOOB SAMPAI KAYA | ROAD TO KAYA #1 | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=dw724THlvGM)
 - [NGEBUAT WORLD AUTO HARVEST & AUTO PLANT DENGAN PLATFORM | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=QwE8LXhez8U)
 - [SCAMMED 40DLS. Ini kronologinya | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=HC0zASKKNkM)
 - [SETIAP GUA MATI DI BLARNEY.. CORET MUKA!! | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=91x3oeGly6c)
-- [WAKTUNYA COLLECT DL! SSP PROFIT DAN LAZY PROFIT PANDEMIC | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=mmCqvRMyEiw)
 <!-- YOUTUBE:END -->
 
 # 📈 My Stats:
