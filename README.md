@@ -79,6 +79,7 @@
   Could be Opening, Ending, OST ~ </br>
   Favorite Anime? Clannad & Kamisama Ni Natta Hi >.<</br> 
   Favorite Tokusatsu? Ultraman Zero, Nexus & Kamen rider Ex-Aid ^0^
+  </a>
 </p>
 
  
