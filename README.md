@@ -72,9 +72,9 @@
   <img align="left" src="https://novatorem-4m3ug0q42-xenoids.vercel.app/api/spotify">
     </p>
 
-#
 
 <p align="right">
+  <a href="https://myanimelist.net/anime/41930/Kamisama_ni_Natta_Hi">
   I Love to listen japanese music especially Anime and Tokusatsu :D.</br>
   Could be Opening, Ending, OST ~ </br>
   Favorite Anime? Clannad & Kamisama Ni Natta Hi >.<</br> 
