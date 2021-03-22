@@ -74,12 +74,11 @@
 
 
 <p align="right">
-  <a class="link-gray-dark" href="https://myanimelist.net/anime/41930/Kamisama_ni_Natta_Hi">
+  <a href="https://myanimelist.net/anime/41930/Kamisama_ni_Natta_Hi">
   I Love to listen japanese music especially Anime and Tokusatsu :D.</br>
   Could be Opening, Ending, OST ~ </br>
   Favorite Anime? Clannad & Kamisama Ni Natta Hi >.<</br> 
   Favorite Tokusatsu? Ultraman Zero, Nexus & Kamen rider Ex-Aid ^0^
-  </a>
 </p>
 
  
