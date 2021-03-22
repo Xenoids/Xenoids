@@ -50,7 +50,7 @@
 - [SETIAP GUA MATI DI BLARNEY.. CORET MUKA!! | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=91x3oeGly6c)
 <!-- YOUTUBE:END -->
 
-# 📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈
+<h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
 
 <div align="center">
 <img src="https://github-readme-stats.vercel.app/api?username=Xenoids&theme=radical&show_icons=true"> 
