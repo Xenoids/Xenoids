@@ -46,11 +46,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [NUNJUKIN PROFIT DARI PEPPER FARM!! | ROAD TO KAYA #4 | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=opwtMZVhjmA)
 - [PROFIT DARI FARM LGRID! SAMPAI BISA BELI FARM LGRID BARU! | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=_hBwaZND31s)
 - [WAKTUNYA BIKIN FARM PEPPER! | ROAD TO KAYA #3 | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=kWW3Ug-bwzo)
 - [PROFITAN INI HARUS DILAKUKAN OLEH PEMULA! | ROAD TO KAYA #2 | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=Cq6nuvs32gw)
 - [MEMULAI PERJALANAN DARI NOOB SAMPAI KAYA | ROAD TO KAYA #1 | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=dw724THlvGM)
-- [NGEBUAT WORLD AUTO HARVEST & AUTO PLANT DENGAN PLATFORM | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=QwE8LXhez8U)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
