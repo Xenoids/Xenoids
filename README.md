@@ -46,11 +46,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [PROFIT DARI BFG LGRID 1 JAM, BFG ATAU MASS. MANAKAH YANG LEBIH PROFIT?  | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=s9Pi8X35FLw)
 - [AKUN GUA KENA HACK. Aduhh.. | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=7vlla2FxrwI)
 - [10 WL SET CHALLENGE JADI LUMBERJACK!! JADI SET UTAMA BISA CUYY!! | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=Gim3TIG8lIg)
 - [NUNJUKIN PROFIT DARI PEPPER FARM!! | ROAD TO KAYA #4 | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=opwtMZVhjmA)
 - [PROFIT DARI FARM LGRID! SAMPAI BISA BELI FARM LGRID BARU! | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=_hBwaZND31s)
-- [WAKTUNYA BIKIN FARM PEPPER! | ROAD TO KAYA #3 | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=kWW3Ug-bwzo)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
