@@ -46,11 +46,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [YESS DIAMOND LOCK PERTAMA KITA BOSS!! | ROAD TO KAYA #5 | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=Ep_IpYKqL9c)
 - [PROFIT DARI BFG CHAND 1 JAM!! BAGUSAN CHAND ATAU LGRID? | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=UCjIyU7ZWxg)
 - [PROFIT DARI BFG LGRID 1 JAM, BFG ATAU MASS. MANAKAH YANG LEBIH PROFIT?  | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=s9Pi8X35FLw)
 - [AKUN GUA KENA HACK. Aduhh.. | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=7vlla2FxrwI)
 - [10 WL SET CHALLENGE JADI LUMBERJACK!! JADI SET UTAMA BISA CUYY!! | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=Gim3TIG8lIg)
-- [NUNJUKIN PROFIT DARI PEPPER FARM!! | ROAD TO KAYA #4 | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=opwtMZVhjmA)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
