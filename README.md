@@ -46,11 +46,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [🔴 Spleefin ae! LIVE BARENG @Vincent Tristan | RTK](https://www.youtube.com/watch?v=bK0efwc4yPE)
 - [50WL SET CHALLENGE BATTLE WITH TIFANIA72 | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=lpw46Qnx98g)
 - [BLUE SET CHALLENGE 4DL!! BISA JADI SET GUA NIH! | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=4s0Dhmiv5Wk)
 - [SET CHALLENGE MERAH!! ABIS 6DL+ MENGGOKIL! | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=KHj36albT0k)
 - [YESS DIAMOND LOCK PERTAMA KITA BOSS!! | ROAD TO KAYA #5 | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=Ep_IpYKqL9c)
-- [PROFIT DARI BFG CHAND 1 JAM!! BAGUSAN CHAND ATAU LGRID? | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=UCjIyU7ZWxg)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
