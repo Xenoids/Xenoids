@@ -46,11 +46,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [MEMULAI MASS DENGAN 155WL! | ROAD TO KAYA #6 | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=R39LntSxCtQ)
 - [NGASIH TAHU BERAPA PROFIT 1WL DALAM 1 JAM DENGAN FARMING! | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=2YzqayKAs88)
 - [MEMBUAT 34 ECTO FARM!! BERAPA FOSSIL NIH?! | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=dPi3DbBLPbo)
 - [MEMBUAT WORLD GEIGER + GHOSTING BUAT LAZY PROFIT! | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=qpXLQw7KQWk)
 - [SET CHALLENGE HIJAU!! KURA KURA NINJA KU BANYAK KEUNN! | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=1NCgsQWMldo)
-- [NGASIH TAHU PROFIT DARI 3200 TACKLE FARM! | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=gPbQyRGE2M0)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
