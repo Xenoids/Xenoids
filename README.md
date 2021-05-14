@@ -46,11 +46,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Menghitung Peluang Profit Saat Menjoki SSU | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=BV97Q5fZtD4)
 - [Nyobain Profit Modal 40 Surg Pack | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=L4P0-E43tDg)
 - [MENCOBA LAZY PROFIT LGRID TANPA BREAK! | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=4C3Tq3Eeuxg)
 - [NUNJUKIN PROFIT DARI ECTO WORLD OWNER!? Stonks | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=V8vdOYrKEsY)
 - [MEMULAI MASS DENGAN 155WL! | ROAD TO KAYA #6 | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=R39LntSxCtQ)
-- [NGASIH TAHU BERAPA PROFIT 1WL DALAM 1 JAM DENGAN FARMING! | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=2YzqayKAs88)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
