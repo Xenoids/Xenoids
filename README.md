@@ -46,11 +46,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Aku Punya 5000+ Science Station Farm! | Growtopia Indonesia #RT2BGL - 1](https://www.youtube.com/watch?v=TKtuGMCJW_U)
 - [Pemindahan Vending Shop [EDISI] Dan Mengkolek Geminkk! | Growtopia Indonesia](https://www.youtube.com/watch?v=Y7oWkJVrZag)
 - [Waktunya Membuat Mini Vending Shop [EDISI] | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=plVPyhGs6TA)
 - [Nyobain Lazy Profit Chand, Bagusan Lgrid atau Chand?! | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=YkTBxl1Tpss)
 - [Setiap Gua Login Malah Ngecrash, Hadehhh | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=INtGpbhnENg)
-- [Menghitung Peluang Profit Saat Menjoki SSU | GROWTOPIA INDONESIA](https://www.youtube.com/watch?v=BV97Q5fZtD4)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
