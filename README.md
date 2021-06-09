@@ -46,11 +46,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Restock 26,4K SSP! Kerja Cerdas Itu Penting! | Growtopia Indonesia #RT2BGL - 6](https://www.youtube.com/watch?v=KTlVrKSfjN8)
 - [Melakukan Profit Dari 200 Building Block Machine, Apakah Profit? | Growtopia Indonesia #RT2BGL - 5](https://www.youtube.com/watch?v=Rkf-aiHpOwM)
 - [Mengubah Sampah SSP Menjadi WL! | Growtopia Indonesia #RT2BGL - 4](https://www.youtube.com/watch?v=pIGJ4bv6jKA)
 - [Review IOTM Juni 2021, Waww... | Growtopia Indonesia](https://www.youtube.com/watch?v=-kx3Rj60KVs)
 - [Carnival Telah Tiba! Waktunya Profitan! | Growtopia Indonesia #RT2BGL - 3](https://www.youtube.com/watch?v=l1OLGioNch0)
-- [Profit Saat Off Record, 10K Subrekers Challenge! | Growtopia Indonesia #RT2BGL - 2](https://www.youtube.com/watch?v=eY2O2x4kzaU)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
