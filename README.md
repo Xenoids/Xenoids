@@ -46,11 +46,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Tutorial Surgery Untuk Pemula, Gampang bingitt! | Growtopia Indonesia](https://www.youtube.com/watch?v=jR_UbipMLo8)
 - [Mindahin World & Profit Dari Jualan Fossil Quest | Growtopia Indonesia #RT2BGL - 7](https://www.youtube.com/watch?v=BRo3LVCQtXs)
 - [Niat Ringmaster Quest, Malah Kena Sekem! | Growtopia Indonesia](https://www.youtube.com/watch?v=COVtEHD9u5w)
 - [Ini Cara Gua Untuk Dapetin 6 Growtoken Sehari! | Growtopia Indonesia](https://www.youtube.com/watch?v=O0otJmJVjZw)
 - [Restock 26,4K SSP! Kerja Cerdas Itu Penting! | Growtopia Indonesia #RT2BGL - 6](https://www.youtube.com/watch?v=KTlVrKSfjN8)
-- [Melakukan Profit Dari 200 Building Block Machine, Apakah Profit? | Growtopia Indonesia #RT2BGL - 5](https://www.youtube.com/watch?v=Rkf-aiHpOwM)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
