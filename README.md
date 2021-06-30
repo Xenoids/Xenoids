@@ -46,11 +46,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Gua Memutuskan Untuk Membangun World Nguli! | Growtopia Indonesia #RT2BGL - 10](https://www.youtube.com/watch?v=rKbm6YEndC8)
 - [Waktunya Menghabiskan DL! Road To Mercy Wings | Growtopia Indonesia](https://www.youtube.com/watch?v=Z8o-JxZadxc)
 - [Waktunya Collect SSP + BBM Shop! | Growtopia Indonesia #RT2BGL - 9](https://www.youtube.com/watch?v=bdGyrXOdRIU)
 - [Suara Lelaki Kami Keluar! | Pacify [The Woods] ​](https://www.youtube.com/watch?v=iNqCX38auj8)
 - [Gua Mencoba Untuk Survive 100 Hari di Minecraft Hardcore, dan ini yang terjadi!](https://www.youtube.com/watch?v=UQB7uhAsc4A)
-- [Membuat BBM Vending Shop! | Growtopia Indonesia #RT2BGL - 8](https://www.youtube.com/watch?v=x5yuMPU3iuU)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
