@@ -46,11 +46,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Profit Farm Lgrid Menggunakan Ancestral Lens Of Riches! | Growtopia Indonesia](https://www.youtube.com/watch?v=OSmG34LhzSU)
 - [Sudah Musimnya Panen Fossil! | Growtopia Indonesia #RT2BGL - 11](https://www.youtube.com/watch?v=f3Vy-n0Sbfg)
 - [REMATCH Game Lucu #2 | Pacify [The Woods]](https://www.youtube.com/watch?v=y5gQOlAmEtw)
 - [Perjalanan Minecraft Skyblock Dimulai! | Minecraft Skyblock #1](https://www.youtube.com/watch?v=AJHVjrGBZTY)
 - [Gua Memutuskan Untuk Membangun World Nguli! | Growtopia Indonesia #RT2BGL - 10](https://www.youtube.com/watch?v=rKbm6YEndC8)
-- [Waktunya Menghabiskan DL! Road To Mercy Wings | Growtopia Indonesia](https://www.youtube.com/watch?v=Z8o-JxZadxc)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
