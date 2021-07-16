@@ -46,11 +46,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Profit 3825 Tackle Setiap 2 Hari! | Growtopia Indonesia](https://www.youtube.com/watch?v=j1xguI3i_XU)
 - [Gara - Gara Gacha, Gua Paksain Buat Dapetin 10DL Dalam 1 Video | Growtopia Indonesia](https://www.youtube.com/watch?v=GxQkR8g_qBA)
 - [Aku Gacha 8DL Karna Melihat Piama Dapet Chariot. | Growtopia Indonesia](https://www.youtube.com/watch?v=4xQu2X31P-4)
 - [Summerfest Tiba, Auto Gacha lahh! | Growtopia Indonesia](https://www.youtube.com/watch?v=XbGRIKJQvNE)
 - [Profit Farm Lgrid Menggunakan Ancestral Lens Of Riches! | Growtopia Indonesia](https://www.youtube.com/watch?v=OSmG34LhzSU)
-- [Sudah Musimnya Panen Fossil! | Growtopia Indonesia #RT2BGL - 11](https://www.youtube.com/watch?v=f3Vy-n0Sbfg)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
