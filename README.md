@@ -46,11 +46,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Nyari - Nyari Rezeki Di World Lama, Nyampe 10DL!! | Growtopia Indonesia](https://www.youtube.com/watch?v=RwX0bNoG8oE)
 - [Profit Dari Shatter Quest Ternyata Diluar Dugaan! | Growtopia Indonesia](https://www.youtube.com/watch?v=O5Cx4sEgbFU)
 - [The Real Paket Komplit SIAL! | Growtopia Indonesia](https://www.youtube.com/watch?v=KNp-tnx520U)
 - [Profit 3825 Tackle Setiap 2 Hari! | Growtopia Indonesia](https://www.youtube.com/watch?v=j1xguI3i_XU)
 - [Gara - Gara Gacha, Gua Paksain Buat Dapetin 10DL Dalam 1 Video | Growtopia Indonesia](https://www.youtube.com/watch?v=GxQkR8g_qBA)
-- [Aku Gacha 8DL Karna Melihat Piama Dapet Chariot. | Growtopia Indonesia](https://www.youtube.com/watch?v=4xQu2X31P-4)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
