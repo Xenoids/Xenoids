@@ -46,11 +46,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Cari - Cari Rezeki Di World Lama Pt.6! | Growtopia Indonesia](https://www.youtube.com/watch?v=opK8LvY67Ck)
 - [Persiapan Carnival Part.1! OTW CUAN | Growtopia Indonesia #RT2BGL - 16](https://www.youtube.com/watch?v=71VXVbgEOpQ)
 - [Ketemu World Bekas Gacha! Mantap nih.. Pt.5 | Growtopia Indonesia](https://www.youtube.com/watch?v=7TVxFLv5EbU)
 - [Ketemu World Farm Lama! Cuannn.. Pt.4 | Growtopia Indonesia](https://www.youtube.com/watch?v=Vz69kphahF0)
 - [Ketemu World Pertama Saat Mulai Nge-Youtube! Pt.3 | Growtopia Indonesia](https://www.youtube.com/watch?v=paDm3m8qv5E)
-- [Ketemu Rezeki Nomplok Di World Lama! Pt.2 | Growtopia Indonesia](https://www.youtube.com/watch?v=HaDr54VWWVk)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
