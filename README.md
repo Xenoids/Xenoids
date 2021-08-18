@@ -46,11 +46,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Akhirnya Gw Dapet Digger Spade Seharga 200 Growtoken! | Growtopia Indonesia](https://www.youtube.com/watch?v=63ogAmQH0vM)
 - [KETEMU GAUT TERBENGKALAI DONGG!! Pt.7 | Growtopia Indonesia](https://www.youtube.com/watch?v=t35lnWt81nE)
 - [Shatter 20 Crystal! GAS CARNICUAN! | Growtopia Indonesia #RT2BGL - 17](https://www.youtube.com/watch?v=l-g34xCBWxA)
 - [Cari - Cari Rezeki Di World Lama Pt.6! | Growtopia Indonesia](https://www.youtube.com/watch?v=opK8LvY67Ck)
 - [Persiapan Carnival Part.1! OTW CUAN | Growtopia Indonesia #RT2BGL - 16](https://www.youtube.com/watch?v=71VXVbgEOpQ)
-- [Ketemu World Bekas Gacha! Mantap nih.. Pt.5 | Growtopia Indonesia](https://www.youtube.com/watch?v=7TVxFLv5EbU)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
