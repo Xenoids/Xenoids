@@ -46,11 +46,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Memperbanyak WL Buat Project Nanti! - Road To GAUT #2 | Growtopia Indonesia](https://www.youtube.com/watch?v=aj1ttRMX-08)
 - [PERMULAAN DARI SERIES ROAD TO GAUT! - Road To GAUT #1 | Growtopia Indonesia](https://www.youtube.com/watch?v=eEn3_cv9xjM)
 - [Review IOTM September 2021 - Ouroboros Charm! | Growtopia Indonesia](https://www.youtube.com/watch?v=tRs-b0aQdcw)
 - [Mencoba Untuk Dapetin Ring Of Range Pt.3 | Growtopia Indonesia](https://www.youtube.com/watch?v=l8zgAB1ZupE)
 - [Jualan Quest Carnival! Profitnya Mantepkeun.. | Growtopia Indonesia #RT2BGL - 20](https://www.youtube.com/watch?v=wzrR4Ol1T2A)
-- [Challenge Kalau Gw Mati, Makan Makaroni + Boncabe Level 30! | Growtopia Indonesia](https://www.youtube.com/watch?v=IrF6FMsPGHw)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
