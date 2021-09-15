@@ -46,11 +46,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Bahas - Bahas Tentang Rencana Masa Depan! - Road To 2 BGL #21 | Growtopia Indonesia](https://www.youtube.com/watch?v=HBenJnYEJ34)
 - [Sudah Banyak Progress Nih! - Road To GAUT #4 | Growtopia Indonesia](https://www.youtube.com/watch?v=LovmJzcZRzU)
 - [Memulai Mass Membuat 1200 Dungeon Door! - Road To Gaut #3 | Growtopia Indonesia](https://www.youtube.com/watch?v=5yKv1Nl-Irg)
 - [Set Challenge 12DL+ Menjadi SilauMan Dan GelapMan!  | Growtopia Indonesia](https://www.youtube.com/watch?v=s0BSojTPQnw)
 - [Memperbanyak WL Buat Project Nanti! - Road To GAUT #2 | Growtopia Indonesia](https://www.youtube.com/watch?v=aj1ttRMX-08)
-- [PERMULAAN DARI SERIES ROAD TO GAUT! - Road To GAUT #1 | Growtopia Indonesia](https://www.youtube.com/watch?v=eEn3_cv9xjM)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
