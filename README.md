@@ -46,11 +46,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Kami Menggacha 15 Hand Scythe Di Harvest Festival! Apakah Wangy Gemink??  | Growtopia Indonesia](https://www.youtube.com/watch?v=TyXNwQBDuzU)
 - [Revamp World EDISI Dan Restock 181K SSP! - RT2BGL #22 | Growtopia Indonesia](https://www.youtube.com/watch?v=5kJNcZK4Ojk)
 - [MASS STEEL BLOCK TAMAT! AUTO DAPET DL! - Road To GAUT #5 | Growtopia Indonesia](https://www.youtube.com/watch?v=FpT1crn5HeE)
 - [Nunjukin Profit Full Farm Laser Grid Di Event Harvest Festival! | Growtopia Indonesia](https://www.youtube.com/watch?v=cURQyZP1ffE)
 - [Apa Kabar RT2BGL! - Road To 2 BGL #21 | Growtopia Indonesia](https://www.youtube.com/watch?v=HBenJnYEJ34)
-- [Sudah Banyak Progress Nih! - Road To GAUT #4 | Growtopia Indonesia](https://www.youtube.com/watch?v=LovmJzcZRzU)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
