@@ -46,11 +46,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Orang Ini Pengen Nipu Gua Dengan Seed Glasspane - Road To GAUT #6 | Growtopia Indonesia](https://www.youtube.com/watch?v=IcJYzLjNWjs)
 - [Gw Prank Scam Orang Saat Beli Fossil Quest - Berburu Carnival Ring #4 | Growtopia Indonesia](https://www.youtube.com/watch?v=O0FKaaPZXLU)
 - [Kami Menggacha 15 Hand Scythe Di Harvest Festival! Apakah Wangy Gemink??  | Growtopia Indonesia](https://www.youtube.com/watch?v=TyXNwQBDuzU)
 - [Revamp World EDISI Dan Restock 181K SSP! - RT2BGL #22 | Growtopia Indonesia](https://www.youtube.com/watch?v=5kJNcZK4Ojk)
 - [MASS STEEL BLOCK TAMAT! AUTO DAPET DL! - Road To GAUT #5 | Growtopia Indonesia](https://www.youtube.com/watch?v=FpT1crn5HeE)
-- [Nunjukin Profit Full Farm Laser Grid Di Event Harvest Festival! | Growtopia Indonesia](https://www.youtube.com/watch?v=cURQyZP1ffE)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
