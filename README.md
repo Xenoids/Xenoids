@@ -46,11 +46,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Pengen Ngelakuin Ring Quest, Malah Rugi Ketemu Skemmer! | Growtopia Indonesia](https://www.youtube.com/watch?v=Vl4gj3PWY2U)
 - [Kali Ini Gw Untung Bandar Dengan Profitan Boss Quest! | Growtopia Indonesia](https://www.youtube.com/watch?v=4-8l8olga2k)
 - [🔴 [LIVE] Uhh.. Dapetin Carnival Ring? | Growtopia Indonesia](https://www.youtube.com/watch?v=Af4R5IUAT2w)
 - [Gw Ngajak Temen Gw Untuk Gacha SSU! Tutorial Merusak Pertemanan wkwk | Growtopia Indonesia](https://www.youtube.com/watch?v=Ag6KJ_BP-es)
 - [Niat Nunjukin Profit Boss Quest.. Eh Malah Buntung! | Growtopia Indonesia](https://www.youtube.com/watch?v=u1S9Y_8PlDI)
-- [Orang Ini Pengen Nipu Gua Dengan Seed Glasspane - Road To GAUT #6 | Growtopia Indonesia](https://www.youtube.com/watch?v=IcJYzLjNWjs)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
