@@ -46,11 +46,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [🔴 [LIVE] Kalo Menang Auto Platinum | Valorant Indonesia](https://www.youtube.com/watch?v=HPyMKQFSJ9s)
 - [Gua Mencoba Menjadi Profiter Tapi Malah Kena Mental! | Growtopia Indonesia](https://www.youtube.com/watch?v=7bXBf5rFd1U)
 - [Mass Dengan Modal 2DL+ ini Akan Melipat Gandakan DL Kita! - Road To Gaut #7 | Growtopia Indonesia](https://www.youtube.com/watch?v=duugLCCg5m8)
 - [Pengen Ngelakuin Ring Quest, Malah Rugi Ketemu Skemmer! | Growtopia Indonesia](https://www.youtube.com/watch?v=Vl4gj3PWY2U)
 - [Kali Ini Gw Untung Bandar Dengan Profitan Boss Quest! | Growtopia Indonesia](https://www.youtube.com/watch?v=4-8l8olga2k)
-- [🔴 [LIVE] Uhh.. Dapetin Carnival Ring? | Growtopia Indonesia](https://www.youtube.com/watch?v=Af4R5IUAT2w)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
