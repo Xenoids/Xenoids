@@ -1,7 +1,7 @@
 <h1>👋 ℋ𝒾, ℐ’𝓂 𝒳ℯ𝓃ℴ𝒾𝒹𝓈 𝒜.𝒦.𝒜 𝓅𝒶𝓇𝓉 ℴ𝒻 𝒯𝒶𝓃 𝒦𝓃𝒾ℊ𝒽𝓉 👋</h1>
 
 - 👀 I’m interested in Playing Game and Coding (if i wanted too lol)
-- 🌱 I’m currently learning C - Data Structure, Java and C# Programming Language
+- 🌱 I’m currently learning C - Data Structure, Java and C# Programming Language ( For Unity )
 - 💞️ I’m looking to collaborate on (not rn still learning probably when i want to lol)
 <br></br>
 <table align="right" border="1px" margin-top="50px">
