@@ -46,11 +46,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Mencari Barang Berharga Di World EDISI Yang Lama! | Growtopia Indonesia](https://www.youtube.com/watch?v=yNzFvZWx_38)
 - [Waktunya Kita Gajian 181K SSP Dari EDISI! Gilak Profitnya! - RT2BGL #23 | Growtopia Indonesia](https://www.youtube.com/watch?v=wjFIhzJ7frM)
 - [Waktunya Kita Collect Donation Box! Challengenya Gak Ngotak! #1 | Growtopia Indonesia](https://www.youtube.com/watch?v=6bvYwqlbows)
 - [Gw Berhasil Melakukan Series DL To Dirt Dalam 1 Video! WKWK | Growtopia Indonesia](https://www.youtube.com/watch?v=_wwSCu0hX5Y)
 - [Yellow Set Challenge Melawan @TIFANIA72 , Keren banget!  | Growtopia Indonesia](https://www.youtube.com/watch?v=YKycXfk3DLQ)
-- [Gua Mencoba Menjadi Profiter Tapi Malah Kena Mental! | Growtopia Indonesia](https://www.youtube.com/watch?v=7bXBf5rFd1U)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
