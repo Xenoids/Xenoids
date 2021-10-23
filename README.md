@@ -10,7 +10,7 @@
   </tr>
   <tr>
     <td>
-    <img src="https://static.zerochan.net/Izanami.Kyouko.full.3018657.png" width="200" height="272" align="right" />
+    <img src="https://static.zerochan.net/Izanami.Kyouko.full.3018657.png" width="150" height="200" align="right" />
     </td>
   </tr>
   </table>
