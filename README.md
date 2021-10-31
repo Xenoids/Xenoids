@@ -46,11 +46,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Setiap 1x Mati Di World HARD, Gw Rugi 5WL! Rugi Bandarrr! | Growtopia Indonesia](https://www.youtube.com/watch?v=yMoRy5QZ2bs)
 - [Invest Jutaan Bait Bekas Tackle Farm Ke Growganoth!  - Road To 2BGL #24 | Growtopia Indonesia](https://www.youtube.com/watch?v=ttwJSSS-B-8)
 - [Gw Tantang Temen Gua Siapa Yang Paling Hoki Dalam Menggacha, Dapet 5DL! | Growtopia Indonesia](https://www.youtube.com/watch?v=qDWGMOPUeTw)
 - [Gw Mencoba Lazy Profit Menjadi Penyedia Jasa Swap! Gile.. Underrated parah!  | Growtopia Indonesia](https://www.youtube.com/watch?v=yhuykQmQQ-0)
 - [Mencari Barang Berharga Di World EDISI Yang Lama! | Growtopia Indonesia](https://www.youtube.com/watch?v=yNzFvZWx_38)
-- [Waktunya Kita Gajian 181K SSP Dari EDISI! Gilak Profitnya! - RT2BGL #23 | Growtopia Indonesia](https://www.youtube.com/watch?v=wjFIhzJ7frM)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
