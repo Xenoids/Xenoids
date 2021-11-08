@@ -48,7 +48,7 @@
 
 <!-- YOUTUBE:START -->
 - [Akhirnya Mass Besar Kita Selesai! - Road To GAUT #8 | Growtopia Indonesia](https://www.youtube.com/watch?v=JBxtqys8dJI)
-- [Gw Profit 38DL Clean Dari Invest Tackle! - RT2BGL #25 (END) | Growtopia Indonesia](https://www.youtube.com/watch?v=XGXxGrhHMTo)
+- [Gw Profit 38DL Clean Dari Invest Tackle! - RT2BGL #25 &lpar;END&rpar; | Growtopia Indonesia](https://www.youtube.com/watch?v=XGXxGrhHMTo)
 - [Setiap 1x Mati Di World HARD, Gw Rugi 5WL! Rugi Bandarrr! | Growtopia Indonesia](https://www.youtube.com/watch?v=yMoRy5QZ2bs)
 - [Invest Jutaan Bait Bekas Tackle Farm Ke Growganoth!  - Road To 2BGL #24 | Growtopia Indonesia](https://www.youtube.com/watch?v=ttwJSSS-B-8)
 - [Gw Tantang Temen Gua Siapa Yang Paling Hoki Dalam Menggacha, Dapet 5DL! | Growtopia Indonesia](https://www.youtube.com/watch?v=qDWGMOPUeTw)
