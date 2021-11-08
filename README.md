@@ -26,7 +26,8 @@
 [<img align="left" alt="Tan Knight | Facebook" width="30px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/facebook.svg" />][facebook]
 [<img align="left" alt="Tan Knight | Tiktok" width="30px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/tiktok.svg" />][tiktok]
 [<img align="left" alt="Tan Knight | Github" width="30px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/github.svg" />][github]
-[<img align="left" alt="Tan Knight | Github" width="30px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/line.svg" />][line]
+[<img align="left" alt="Tan Knight | Line" width="30px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/line.svg" />][line]
+[<img align="left" alt="Tan Knight | GenshinImpact" width="70px" src="https://upload.wikimedia.org/wikipedia/en/5/5d/Genshin_Impact_logo.svg"/>][GenshinImpact]
 
 <br>
 <br>
@@ -105,5 +106,6 @@
 [C#]: https://en.wikipedia.org/wiki/C_Sharp_(programming_language)
 [iza]: https://kamisamaday.fandom.com/wiki/Kyouko_Izanami
 [line]: http://line.me/ti/p/~nicholasvt1
+[GenshinImpact]: https://www.hoyolab.com/accountCenter/postList?id=10622742
 
 ---
