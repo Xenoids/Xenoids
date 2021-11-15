@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Hasil Mass Military Radio Melebihi Ekspetasi! Mantappp - Road To GAUT #9 | Growtopia Indonesia](https://www.youtube.com/watch?v=Xk1eHFsw50o)
 - [Gw Ngajak Temen Gw Untuk Gacha Growsaber! Babaii pensii wkwk | Growtopia Indonesia](https://www.youtube.com/watch?v=6V4ynLQZIOY)
 - [Gw Mengajak Temen Gw Untuk Gacha SSU Lagi! AKHIRNYA DCS JUGA! | Growtopia Indonesia](https://www.youtube.com/watch?v=HWNcEBn_iNs)
 - [Akhirnya Mass Besar Kita Selesai! - Road To GAUT #8 | Growtopia Indonesia](https://www.youtube.com/watch?v=JBxtqys8dJI)
 - [Gw Profit 38DL Clean Dari Invest Tackle! - RT2BGL #25 &lpar;END&rpar; | Growtopia Indonesia](https://www.youtube.com/watch?v=XGXxGrhHMTo)
-- [Setiap 1x Mati Di World HARD, Gw Rugi 5WL! Rugi Bandarrr! | Growtopia Indonesia](https://www.youtube.com/watch?v=yMoRy5QZ2bs)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
