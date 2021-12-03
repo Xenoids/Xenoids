@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Gw Ketemu Banyak Barang Mahal Di Inventory Gw! Auto Cuan! Pt.1 | Growtopia Indonesia](https://www.youtube.com/watch?v=PTd2qr0R40s)
 - [Niat Pengen Prank Scam, Eh Backpack Full! Berburu Carnival Ring #6 | Growtopia Indonesia](https://www.youtube.com/watch?v=2c5WL5BfKJM)
 - [Waktunya Kita Habisin DL Dengan Gacha Black Friday! | Growtopia Indonesia](https://www.youtube.com/watch?v=EowjAq7LdM8)
 - [Gw Mencoba Untuk Show Battle Bermodalkan 3BGL! Tetep ae Kena Mental.. | Growtopia Indonesia](https://www.youtube.com/watch?v=BpBPobbA0Os)
 - [Gw Ngajak Teman Gw Untuk Gacha 30 Organic Turkey! Dapetnya Itu Mulu.. | Growtopia Indonesia](https://www.youtube.com/watch?v=6Fj6gZ7j_tI)
-- [🔴 [LIVE] Waktunya Panen Fossil! | Growtopia Indonesia](https://www.youtube.com/watch?v=Mt4RYKdXh6w)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
