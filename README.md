@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Waktunya Kita Collect - Collect Simulator! Pt.2 | Growtopia Indonesia](https://www.youtube.com/watch?v=V9hkeLt71tM)
 - [Gw Ketemu Barang Yang Dulunya 1DL, Sekarang 13DL! Cuan Parahh Pt.2 | Growtopia Indonesia](https://www.youtube.com/watch?v=3Ho9AAlM3Yc)
 - [Growsaber Tree Gw Siap Panen! Waktunya Gatchaaah! | Growtopia Indonesia](https://www.youtube.com/watch?v=oCVEZA4e1iE)
 - [🔴 [LIVE] Carnival Awal Bulan?! Ubilembud Bercanda? | Growtopia Indonesia](https://www.youtube.com/watch?v=dsp9Hpg_c5I)
 - [Gw Ketemu Banyak Barang Mahal Di Inventory Gw! Auto Cuan! Pt.1 | Growtopia Indonesia](https://www.youtube.com/watch?v=PTd2qr0R40s)
-- [Niat Pengen Prank Scam, Eh Backpack Full! Berburu Carnival Ring #6 | Growtopia Indonesia](https://www.youtube.com/watch?v=2c5WL5BfKJM)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
