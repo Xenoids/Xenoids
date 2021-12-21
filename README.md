@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Gw Menemukan Zeus Terbengkalai! Mantep Propit! | Growtopia Indonesia](https://www.youtube.com/watch?v=WtOdn0RZucY)
 - [Gw Challenge 65 Orang Untuk Bertahan Hidup! With @Rio Ihsan | Growtopia Indonesia](https://www.youtube.com/watch?v=j6vZ3PPlJFo)
 - [Orang Ini Pengen Nipu Gua Lagi Dengan 200 Glasspane Seed - Road To Gaut #10 | Growtopia Indonesia](https://www.youtube.com/watch?v=sc4p7njNdkI)
 - [Waktunya Kita Collect - Collect Simulator! Pt.2 | Growtopia Indonesia](https://www.youtube.com/watch?v=V9hkeLt71tM)
 - [Gw Ketemu Barang Yang Dulunya 1DL, Sekarang 13DL! Cuan Parahh Pt.2 | Growtopia Indonesia](https://www.youtube.com/watch?v=3Ho9AAlM3Yc)
-- [Growsaber Tree Gw Siap Panen! Waktunya Gatchaaah! | Growtopia Indonesia](https://www.youtube.com/watch?v=oCVEZA4e1iE)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
