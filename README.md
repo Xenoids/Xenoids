@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Waktunya Kita Membuat World Main Bermodal! - Road To Gaut #11 | Growtopia Indonesia](https://www.youtube.com/watch?v=_BQfAJ-5dTU)
 - [Waktunya Gw Panen Fossil Dari World TANHUNT! Nyampe 30DL! | Growtopia Indonesia](https://www.youtube.com/watch?v=zXwh-3ZVp2g)
 - [Sekian Lama Aku Menggacha!! Akhirnyaaa~ | Growtopia Indonesia](https://www.youtube.com/watch?v=MgwYJM6fShU)
 - [Gw Menemukan Zeus Terbengkalai! Mantep Propit! | Growtopia Indonesia](https://www.youtube.com/watch?v=WtOdn0RZucY)
 - [Gw Challenge 65 Orang Untuk Bertahan Hidup! With @Rio Ihsan | Growtopia Indonesia](https://www.youtube.com/watch?v=j6vZ3PPlJFo)
-- [Orang Ini Pengen Nipu Gua Lagi Dengan 200 Glasspane Seed - Road To Gaut #10 | Growtopia Indonesia](https://www.youtube.com/watch?v=sc4p7njNdkI)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
