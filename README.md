@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Gw Profit 44DL Clean Dalam Video Ini! Gilaaaak! | Growtopia Indonesia](https://www.youtube.com/watch?v=vT43WU4BQ5w)
 - [Gw Mencoba Untuk Menggacha Cave Blast! Apakah Golden Apple Itu Benar Adanya?? | Growtopia Indonesia](https://www.youtube.com/watch?v=0X60V3cMeTY)
 - [Waktunya Kita Membuat World Main Bermodal! - Road To Gaut #11 | Growtopia Indonesia](https://www.youtube.com/watch?v=_BQfAJ-5dTU)
 - [Waktunya Gw Panen Fossil Dari World TANHUNT! Nyampe 30DL! | Growtopia Indonesia](https://www.youtube.com/watch?v=zXwh-3ZVp2g)
 - [Sekian Lama Aku Menggacha!! Akhirnyaaa~ | Growtopia Indonesia](https://www.youtube.com/watch?v=MgwYJM6fShU)
-- [Gw Menemukan Zeus Terbengkalai! Mantep Propit! | Growtopia Indonesia](https://www.youtube.com/watch?v=WtOdn0RZucY)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
