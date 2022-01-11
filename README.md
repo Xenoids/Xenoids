@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Gw Keseringan Gacha Sampe Inventory Memfossil Lagi! Cuan Timee! Pt.3 | Growtopia Indonesia](https://www.youtube.com/watch?v=QqgEWC_9NMo)
 - [Gw Mencoba Untuk Mendapatkan Profit Dari Gacha Golden Party Box! | Growtopia Indonesia](https://www.youtube.com/watch?v=NkDx1AZtJ54)
 - [Gw Profit 44DL Clean Dalam Video Ini! Gilaaaak! | Growtopia Indonesia](https://www.youtube.com/watch?v=vT43WU4BQ5w)
 - [Gw Mencoba Untuk Menggacha Cave Blast! Apakah Golden Apple Itu Benar Adanya?? | Growtopia Indonesia](https://www.youtube.com/watch?v=0X60V3cMeTY)
 - [Waktunya Kita Membuat World Main Bermodal! - Road To Gaut #11 | Growtopia Indonesia](https://www.youtube.com/watch?v=_BQfAJ-5dTU)
-- [Waktunya Gw Panen Fossil Dari World TANHUNT! Nyampe 30DL! | Growtopia Indonesia](https://www.youtube.com/watch?v=zXwh-3ZVp2g)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
