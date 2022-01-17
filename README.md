@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Pengen Ngelakuin Ringmaster Quest, Eh Malah Kena Scam Melulu.. - Cape dah Pt.7 | Growtopia Indonesia](https://www.youtube.com/watch?v=UeBlJhHMuiI)
 - [Gw Diingetin Subscriber Gw Tentang World Lama Ini! Mantappp! | Growtopia Indonesia](https://www.youtube.com/watch?v=PxNAdzvIBi4)
 - [Gw Keseringan Gacha Sampe Inventory Memfossil Lagi! Cuan Timee! Pt.3 | Growtopia Indonesia](https://www.youtube.com/watch?v=QqgEWC_9NMo)
 - [Gw Mencoba Untuk Mendapatkan Profit Dari Gacha Golden Party Box! | Growtopia Indonesia](https://www.youtube.com/watch?v=NkDx1AZtJ54)
 - [Gw Profit 44DL Clean Dalam Video Ini! Gilaaaak! | Growtopia Indonesia](https://www.youtube.com/watch?v=vT43WU4BQ5w)
-- [Gw Mencoba Untuk Menggacha Cave Blast! Apakah Golden Apple Itu Benar Adanya?? | Growtopia Indonesia](https://www.youtube.com/watch?v=0X60V3cMeTY)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
