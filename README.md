@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Gw Mencoba Untuk Menggacha Tulang Buat Dapetin DNA!! | Growtopia Indonesia](https://www.youtube.com/watch?v=o_Gh-Qr_iG4)
 - [Gw Tantang 65 Orang Untuk Menyelesaikan Parkour Buatan Gw! Chaos bett! | Growtopia Indonesia](https://www.youtube.com/watch?v=rIAGW0YbA70)
 - [Gw Ngajak Youtuber Ini Untuk Menyelesaikan Parkour Buatan Gw! NGAKAKK! | Growtopia Indonesia](https://www.youtube.com/watch?v=tAbHV03_cGM)
 - [Carnival Tiba, Waktunya Kita Gajian 50DL+ Dari Fossil Quest! | Growtopia Indonesia](https://www.youtube.com/watch?v=Sx5Uw17Yk_k)
 - [Pengen Ngelakuin Ringmaster Quest, Eh Malah Kena Scam Melulu.. - Cape dah Pt.7 | Growtopia Indonesia](https://www.youtube.com/watch?v=UeBlJhHMuiI)
-- [Gw Diingetin Subscriber Gw Tentang World Lama Ini! Mantappp! | Growtopia Indonesia](https://www.youtube.com/watch?v=PxNAdzvIBi4)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
