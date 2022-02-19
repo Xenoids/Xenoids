@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Mulai Mass Besar Besaran! - RTGAUT #12 | Growtopia Indonesia](https://www.youtube.com/watch?v=Zlij6kkaRd4)
 - [Gw Ngetroll World Casino Sampe Mampus!! WKWKWK | Growtopia Indonesia](https://www.youtube.com/watch?v=jMFjU1tUtHo)
 - [Gw Gacha 3,3 Juta Gems Untuk Mendapatkan GHC! Tapi.. | Growtopia Indonesia](https://www.youtube.com/watch?v=mu-7x22JRUQ)
 - [🔴 [LIVE] Jadi Masterchef Sementara Buat Dapetin Gems Untuk Gacha Valentine! | Growtopia Indonesia](https://www.youtube.com/watch?v=f19UjG0eAng)
 - [Membuat World Pabrik Gems Dan Dapetin 1 Jeti Gems Dari Masak-Masak! | Growtopia Indonesia](https://www.youtube.com/watch?v=jY8gZV8sCcM)
-- [Ternyata Segini Ya.. Profit Dari Masak-Masak! Broken Banget Profitnyaaa!! | Growtopia Indonesia](https://www.youtube.com/watch?v=mX3nowlZJNg)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
