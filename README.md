@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Gw Ngetroll World Casino Sampai Worldnya Bubar WKWKWK Pt.2 | Growtopia Indonesia](https://www.youtube.com/watch?v=uQhnJO4DOlI)
 - [Ngestock 141K SSP Untuk World EDISI! Serta Tutorial Merusak PC WKWK | Growtopia Indonesia](https://www.youtube.com/watch?v=nGDRA1Qdh9g)
 - [Mulai Mass Besar Besaran! - RTGAUT #12 | Growtopia Indonesia](https://www.youtube.com/watch?v=Zlij6kkaRd4)
 - [Gw Ngetroll World Casino Sampe Mampus!! WKWKWK | Growtopia Indonesia](https://www.youtube.com/watch?v=jMFjU1tUtHo)
 - [Gw Gacha 3,3 Juta Gems Untuk Mendapatkan GHC! Tapi.. | Growtopia Indonesia](https://www.youtube.com/watch?v=mu-7x22JRUQ)
-- [🔴 [LIVE] Jadi Masterchef Sementara Buat Dapetin Gems Untuk Gacha Valentine! | Growtopia Indonesia](https://www.youtube.com/watch?v=f19UjG0eAng)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
