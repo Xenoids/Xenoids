@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Gw Masang Beehive Di Room BFG Orang! Malah Orangnya Yang Kena Ban WKWKWK | Growtopia Indonesia](https://www.youtube.com/watch?v=UaonQ95FpOs)
 - [Para Skemmer Nampaknya Sudah Kena Mental Ya.. WKWKWK Pt.8 | Growtopia Indonesia](https://www.youtube.com/watch?v=nmW5mirLzLo)
 - [Gw Ngetroll World Casino Sampai Worldnya Bubar WKWKWK Pt.2 | Growtopia Indonesia](https://www.youtube.com/watch?v=uQhnJO4DOlI)
 - [Ngestock 141K SSP Untuk World EDISI! Serta Tutorial Merusak PC WKWK | Growtopia Indonesia](https://www.youtube.com/watch?v=nGDRA1Qdh9g)
 - [Mulai Mass Besar Besaran! - RTGAUT #12 | Growtopia Indonesia](https://www.youtube.com/watch?v=Zlij6kkaRd4)
-- [Gw Ngetroll World Casino Sampe Mampus!! WKWKWK | Growtopia Indonesia](https://www.youtube.com/watch?v=jMFjU1tUtHo)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
