@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Waktunya Kita Design World EDISI &amp; CEKO! KERENNN | Growtopia Indonesia](https://www.youtube.com/watch?v=wDqSy55tEfw)
 - [Colek Colek Profitan 141K SSP &amp; Membahas Masa Depan World EDISI  | Growtopia Indonesia](https://www.youtube.com/watch?v=F-BVi48uvJY)
 - [Gw Ngetest Kehokian Para Youtuber Growtopia Melalui Game ini! | Growtopia Indonesia](https://www.youtube.com/watch?v=OvQma0fzEqo)
 - [Gw Bekerja Sama Dengan Mods Untuk Ciduk World Casino WKWKWK Pt.3 | Growtopia Indonesia](https://www.youtube.com/watch?v=82WcYzs3ka8)
 - [Apakah Magical Rainbow Fishing Rod Itu Nyata? | Growtopia Indonesia](https://www.youtube.com/watch?v=olJ_AEiYKyY)
-- [Hasil Mass Paint Bucket EMANG GILAKKK! LANGSUNG GAUTT! - RTGAUT END | Growtopia Indonesia](https://www.youtube.com/watch?v=uhC94Ls6UyI)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
