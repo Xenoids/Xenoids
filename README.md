@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Melihat Kembali Hasil Gacha Valentine! BANYAK BANGET ITEMNYAA | Growtopia Indonesia](https://www.youtube.com/watch?v=ScsRSf6MBNY)
 - [Gw Beli Access Hanya Untuk Grief World Casino! WKWKWK pt.4 | Growtopia Indonesia](https://www.youtube.com/watch?v=qaiIML0mYzo)
 - [Akhirnya Gua Punya SET GEGE GAMINK! Set Challenge 20DL+ | Growtopia Indonesia](https://www.youtube.com/watch?v=dNRIVXnI_1M)
 - [Gw Ngancurin World EDISI Lama! Tapi Tetep Propit WKWK | Growtopia Indonesia](https://www.youtube.com/watch?v=OTaH4upvkAE)
 - [Waktunya Kita Design World EDISI &amp; CEKO! KERENNN | Growtopia Indonesia](https://www.youtube.com/watch?v=wDqSy55tEfw)
-- [Colek Colek Profitan 141K SSP &amp; Membahas Masa Depan World EDISI  | Growtopia Indonesia](https://www.youtube.com/watch?v=F-BVi48uvJY)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
