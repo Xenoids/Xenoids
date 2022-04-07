@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Gw Dapetin 1 BGL &amp; Merencanakan Project Baru! | Growtopia Indonesia](https://www.youtube.com/watch?v=7hiap-BpSUs)
 - [Kejadian Trauma Kena Sekem Terjadi Lagi, Hadehh Wkwkwk Pt.4 | Growtopia Indonesia](https://www.youtube.com/watch?v=h4e9uyDgZTY)
 - [Niat Pengen Cuan Jualan DNA Quest, EHHH MALAH KEPENCET COMBINE :&lpar; | Growtopia Indonesia](https://www.youtube.com/watch?v=iU2X9yPHTZc)
 - [Gw Pura Pura Menjadi Orang Random Lalu Donate Temen Gw 10DL! NGAKAK WKWK | Growtopia Indonesia](https://www.youtube.com/watch?v=9i3O9x-WtwE)
 - [Melihat Kembali Hasil Gacha Valentine! BANYAK BANGET ITEMNYAA | Growtopia Indonesia](https://www.youtube.com/watch?v=ScsRSf6MBNY)
-- [Gw Beli Access Hanya Untuk Grief World Casino! WKWKWK pt.4 | Growtopia Indonesia](https://www.youtube.com/watch?v=qaiIML0mYzo)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
