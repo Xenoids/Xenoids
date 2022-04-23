@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Lanjutin Jualan Barang! Tiba-tiba Gua Ketemu Barang Ini.. - RT40CF #5 | Growtopia Indonesia](https://www.youtube.com/watch?v=43Nkoc69V1s)
 - [Gw Menjadi Security BFG Buat Dapetin Cuan WKWKWK | Growtopia Indonesia](https://www.youtube.com/watch?v=J1P4W0po6S0)
 - [Waktunya Buka BFG Chand! Tapi... Ngapain Nih Orang WKWKW  - RT40CF #4 | Growtopia Indonesia](https://www.youtube.com/watch?v=JeVFuystUJU)
 - [Gw Beli Access World Casino Dan Memasang Ratusan Beehive! WKWKW Pt.5 | Growtopia Indonesia](https://www.youtube.com/watch?v=wwFVU2gWwjo)
 - [Nyobain Profitan Masak Masak Lagi! 230K GEMS PER JAM! - RT40CF #3 | Growtopia Indonesia](https://www.youtube.com/watch?v=nZkktJAELcQ)
-- [Lanjutin Jualan Barang &amp; Pembuktian Teknik Kasar WKWKWK - RT40CF #2 | Growtopia Indonesia](https://www.youtube.com/watch?v=yS7mX_kJb4c)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
