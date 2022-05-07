@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Gacha Lava Pinata &amp; Membahas Suatu Kebingungan! | Growtopia Indonesia](https://www.youtube.com/watch?v=Aukj26Tohjg)
 - [Mengganti Design World TANHUNT Menjadi Lebih Cakep! | Growtopia Indonesia](https://www.youtube.com/watch?v=WSuwqYrKGz4)
 - [Gw Mencoba Untuk Chemsynth Buat Dapetin Bridle! Apakah Bridle Nyata? | Growtopia Indonesia](https://www.youtube.com/watch?v=C3ZwBXL6zuI)
 - [Seharian Menjadi Juragan Fossil! Menyiksa Diri Tapi Worth It WKWWK | Growtopia Indonesia](https://www.youtube.com/watch?v=zTDGwOg-EzU)
 - [Waktunya Gajian Buat Persiapan Carnival Bulan Depan! | Growtopia Indonesia](https://www.youtube.com/watch?v=n6a0wg-tkzw)
-- [Kalau Gw Dapet 20DL Dari Donation Box, Gw Main Game Horror! SEREMM BETTT | Growtopia Indonesia](https://www.youtube.com/watch?v=fBwvbZO-8fA)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
