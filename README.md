@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Ninja, Instant Karma , dan Botol Penyelamat - Valorant Indonesia #1](https://www.youtube.com/watch?v=I4Fvins8Fks)
 - [Gw Ngajak Orang Random Buat Ikutin Minigame Ini! DEG DEG GAMING | Growtopia Indonesia](https://www.youtube.com/watch?v=p7AsENoi_Kw)
 - [Nambahin World BFG &amp; Ketemu World Terlupakan! - RT40CF #6 | Growtopia Indonesia](https://www.youtube.com/watch?v=RwHI18XJzbk)
 - [Gacha Lava Pinata &amp; Membahas Suatu Kebingungan! | Growtopia Indonesia](https://www.youtube.com/watch?v=Aukj26Tohjg)
 - [Mengganti Design World TANHUNT Menjadi Lebih Cakep! | Growtopia Indonesia](https://www.youtube.com/watch?v=WSuwqYrKGz4)
-- [Gw Mencoba Untuk Chemsynth Buat Dapetin Bridle! Apakah Bridle Nyata? | Growtopia Indonesia](https://www.youtube.com/watch?v=C3ZwBXL6zuI)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
