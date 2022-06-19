@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [🔴 [LIVE] Subathong Pertama Adick&quot;](https://www.youtube.com/watch?v=eWnuiXCnnDc)
 - [Orang Random Ini Masang Crime, Lalu Jual Jasa Crime Sendiri WKWKWK! Pt.6 |  Growtopia Indonesia](https://www.youtube.com/watch?v=cntMsTU7hSI)
 - [Waktunya Mengubah Sampah Menjadi WL! Tapi Kok Malah Kena Mental?? | Growtopia Indonesia](https://www.youtube.com/watch?v=f93oQ0CEj2Y)
 - [Katanya Konten Gua Ngabisin DL Terus! Jadi Gua Buktiin Gua Bisa Profitan Juga! | Growtopia Indonesia](https://www.youtube.com/watch?v=c0tDBJvXKf0)
 - [GEMONADE NERF? Dahlah.. | Growtopia Indonesia](https://www.youtube.com/watch?v=Is_-BEIoTPA)
-- [Niat Bersenang Senang, Eh Malah Kena Mental! | Growtopia Indonesia](https://www.youtube.com/watch?v=x8IVgBoBRdw)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
