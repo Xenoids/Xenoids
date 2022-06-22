@@ -47,7 +47,7 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
-- [🔴 [LIVE] Mobil Legend Custom - DAY 4](https://www.youtube.com/watch?v=jIiXZYNIrFE)
+- [🔴 [LIVE] Apakah teori bocil tidak emot itu nyata? - DAY 4](https://www.youtube.com/watch?v=jIiXZYNIrFE)
 - [🔴 [LIVE] Valorant dulu bosku  - DAY 3](https://www.youtube.com/watch?v=H7TrIczVDGM)
 - [🔴 Subathon Day 2](https://www.youtube.com/watch?v=AqSkOJkSq8w)
 - [🔴 Permulaan - Subathon Day 1](https://www.youtube.com/watch?v=eWnuiXCnnDc)
