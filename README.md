@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Kok Malah Jadi Summer KW?! Summerfest-nya Manaaaaa!! | Growtopia Indonesia](https://www.youtube.com/watch?v=maR0oNvMHww)
 - [🔴 Teori End Stream Itu Nyata! - Subathon Day 5](https://www.youtube.com/watch?v=wmMfHlnx51Q)
 - [🔴 Subathon Day 4](https://www.youtube.com/watch?v=jIiXZYNIrFE)
 - [🔴 Subathon Day 3](https://www.youtube.com/watch?v=H7TrIczVDGM)
 - [🔴 Subathon Day 2](https://www.youtube.com/watch?v=AqSkOJkSq8w)
-- [🔴 Permulaan - Subathon Day 1](https://www.youtube.com/watch?v=eWnuiXCnnDc)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
