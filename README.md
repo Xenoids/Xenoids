@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
-- [🔴 [LIVE] sesi signn | Growtopia Indonesia](https://www.youtube.com/watch?v=iXYoCZqH09k)
 - [LAZY PROFIT GAMPANG DENGAN METODE HUNTING GHOST / GHOSTING! PROFIT PARAH!! | Growtopia Indonesia](https://www.youtube.com/watch?v=YOmAxoOyjFI)
 - [Kok Malah Jadi Summer KW?! Summerfest-nya Manaaaaa!! | Growtopia Indonesia](https://www.youtube.com/watch?v=maR0oNvMHww)
-- [🔴 Teori End Stream Itu Nyata! - Subathon Day 5](https://www.youtube.com/watch?v=wmMfHlnx51Q)
-- [🔴 Subathon Day 4](https://www.youtube.com/watch?v=jIiXZYNIrFE)
+- [Orang Random Ini Masang Crime, Lalu Jual Jasa Crime Sendiri WKWKWK! Pt.6 |  Growtopia Indonesia](https://www.youtube.com/watch?v=cntMsTU7hSI)
+- [Waktunya Mengubah Sampah Menjadi WL! Tapi Kok Malah Kena Mental?? | Growtopia Indonesia](https://www.youtube.com/watch?v=f93oQ0CEj2Y)
+- [Katanya Konten Gua Ngabisin DL Terus! Jadi Gua Buktiin Gua Bisa Profitan Juga! | Growtopia Indonesia](https://www.youtube.com/watch?v=c0tDBJvXKf0)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
