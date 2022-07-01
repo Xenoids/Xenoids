@@ -47,7 +47,7 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
-- [🔴 Road To Ascendant! With @Rio Ihsan - Part 2](https://www.youtube.com/watch?v=6uwldPZSFvQ)
+- [🔴 Custom Mobil Legend With @Rio Ihsan - Part 2](https://www.youtube.com/watch?v=6uwldPZSFvQ)
 - [🔴 semua gara gara erik](https://www.youtube.com/watch?v=oyF5Miot8WE)
 - [LAZY PROFIT GAMPANG DENGAN METODE HUNTING GHOST / GHOSTING! PROFIT PARAH!! | Growtopia Indonesia](https://www.youtube.com/watch?v=YOmAxoOyjFI)
 - [Kok Malah Jadi Summer KW?! Summerfest-nya Manaaaaa!! | Growtopia Indonesia](https://www.youtube.com/watch?v=maR0oNvMHww)
