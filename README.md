@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [🔴 semua gara gara erik - part 2](https://www.youtube.com/watch?v=6uwldPZSFvQ)
 - [🔴 semua gara gara erik](https://www.youtube.com/watch?v=oyF5Miot8WE)
 - [LAZY PROFIT GAMPANG DENGAN METODE HUNTING GHOST / GHOSTING! PROFIT PARAH!! | Growtopia Indonesia](https://www.youtube.com/watch?v=YOmAxoOyjFI)
 - [Kok Malah Jadi Summer KW?! Summerfest-nya Manaaaaa!! | Growtopia Indonesia](https://www.youtube.com/watch?v=maR0oNvMHww)
 - [Orang Random Ini Masang Crime, Lalu Jual Jasa Crime Sendiri WKWKWK! Pt.6 |  Growtopia Indonesia](https://www.youtube.com/watch?v=cntMsTU7hSI)
-- [Waktunya Mengubah Sampah Menjadi WL! Tapi Kok Malah Kena Mental?? | Growtopia Indonesia](https://www.youtube.com/watch?v=f93oQ0CEj2Y)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
