@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [[🔴] Pertama Kali Membuka Warnet! | Warnet Simulator Indonesia #1](https://www.youtube.com/watch?v=AuUgRaj2huY)
 - [[🔴] Perjuangan Seorang Streamer Di Mulai! | Streamer Life Simulator #1](https://www.youtube.com/watch?v=H7LVxHEGd14)
 - [[🔴] Sekian Lama Slaf NGESCAM! Akhirnya Jadi Babu Gua Juga! | Bakso Simulator Indonesia #2](https://www.youtube.com/watch?v=JhFxlF1ChCg)
 - [[🔴] Happy Ending! Hello Utopia! | Raft Indonesia](https://www.youtube.com/watch?v=QFlkdY4ZwYo)
 - [[🔴] Saya Direkrut Menjadi Tukang Bakso! | Bakso Simulator Indonesia #1](https://www.youtube.com/watch?v=FE6MPyI3jRA)
-- [🔴 Road TO Utopia! #2  Part 5](https://www.youtube.com/watch?v=SlNEdX29kK8)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
