@@ -49,7 +49,7 @@
 <!-- YOUTUBE:START -->
 - [[🔴] Happy Ending! Hello Utopia! | Raft Indonesia](https://www.youtube.com/watch?v=QFlkdY4ZwYo)
 - [[🔴] Usaha Bakso Saya Semakin Laris! | Bakso Simulator Indonesia](https://www.youtube.com/watch?v=JhFxlF1ChCg)
-- [[🔴] Saya Direkrut Menjadi Tukang Bakso! | Bakso Simulator Indonesia](https://www.youtube.com/watch?v=FE6MPyI3jRA)
+- [[🔴] Saya Direkrut Menjadi Tukang Bakso! | Bakso Simulator Indonesia #1](https://www.youtube.com/watch?v=FE6MPyI3jRA)
 - [🔴 Road TO Utopia! #2  Part 5](https://www.youtube.com/watch?v=SlNEdX29kK8)
 - [🔴 Road TO Utopia! - Part 5](https://www.youtube.com/watch?v=uFwWHff5bK8)
 <!-- YOUTUBE:END -->
