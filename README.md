@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [[🔴] UPDATEAN TERBARU! ADA STORY CHAPTER 1 DI BAKSO SIMULATOR! | Bakso Simulator Indonesia #4](https://www.youtube.com/watch?v=94TYpJDYxYM)
 - [[🔴] Waktunya Upgrade PC MEVVAH! | Warnet Simulator Indonesia #2](https://www.youtube.com/watch?v=7hKyiOzYQO4)
 - [[🔴] Nyari Duit Buat Beli Resep BAKSO MAHAL! | Bakso Simulator Indonesia #3](https://www.youtube.com/watch?v=04aeIFag2h4)
 - [[🔴] Duit Habis Dan Tagihan Berjibun! | Streamer Life Simulator #2](https://www.youtube.com/watch?v=4s9BpPfD37I)
 - [[🔴] Perjuangan Seorang Streamer Di Mulai! | Streamer Life Simulator #1](https://www.youtube.com/watch?v=H7LVxHEGd14)
-- [[🔴] Pertama Kali Membuka Warnet! | Warnet Simulator Indonesia #1](https://www.youtube.com/watch?v=AuUgRaj2huY)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
