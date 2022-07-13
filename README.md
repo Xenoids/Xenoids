@@ -51,7 +51,7 @@
 - [[🔴] Misi Memperbaiki Robot So-Rob! | Bakso Simulator Indonesia #5](https://www.youtube.com/watch?v=BsO6GjKsEIk)
 - [[🔴] Tagihan Tak Henti Berdatangan, NEW GAME SOLUSINYA! | Streamer Life Simulator #3](https://www.youtube.com/watch?v=bY0Tsq5GAXY)
 - [[🔴] UPDATEAN TERBARU! ADA STORY CHAPTER 1 DI BAKSO SIMULATOR! | Bakso Simulator Indonesia #4](https://www.youtube.com/watch?v=94TYpJDYxYM)
-- [[🔴] Kami Terdampar Di Pulau Yang Besar Dan Terpencil! Ft. @Rio Ihsan  | The Forest Indonesia #1](https://www.youtube.com/watch?v=D7PQNea9wM0)
+- [[🔴] Waktunya Upgrade PC MEVVAH! | Warnet Simulator Indonesia #2](https://www.youtube.com/watch?v=7hKyiOzYQO4)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
