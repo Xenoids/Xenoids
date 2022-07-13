@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [[🔴] Mencoba Untuk Booyah Di Game 4K HD Ini! | Free Fire Indonesia](https://www.youtube.com/watch?v=BrQ8iJ_E2mM)
 - [[🔴] Misi Memperbaiki Robot So-Rob! | Bakso Simulator Indonesia #5](https://www.youtube.com/watch?v=BsO6GjKsEIk)
 - [[🔴] Tagihan Tak Henti Berdatangan, NEW GAME SOLUSINYA! | Streamer Life Simulator #3](https://www.youtube.com/watch?v=bY0Tsq5GAXY)
 - [[🔴] UPDATEAN TERBARU! ADA STORY CHAPTER 1 DI BAKSO SIMULATOR! | Bakso Simulator Indonesia #4](https://www.youtube.com/watch?v=94TYpJDYxYM)
 - [[🔴] Waktunya Upgrade PC MEVVAH! | Warnet Simulator Indonesia #2](https://www.youtube.com/watch?v=7hKyiOzYQO4)
-- [[🔴] Nyari Duit Buat Beli Resep BAKSO MAHAL! | Bakso Simulator Indonesia #3](https://www.youtube.com/watch?v=04aeIFag2h4)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
