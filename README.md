@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
-- [[🔴] TOLONGG! AKU DAN @Rio Ihsan DIKEJAR VALAQ.PNG!!! | Garry&#39;s Mod Indonesia](https://www.youtube.com/watch?v=1Ft3ap09asg)
 - [[🔴] Kami Terdampar Di Pulau Yang Besar Dan Terpencil! Ft. @Rio Ihsan  | The Forest Indonesia #1](https://www.youtube.com/watch?v=D7PQNea9wM0)
 - [[🔴] Mencoba Untuk Booyah Di Game 4K HD Ini! | Free Fire Indonesia](https://www.youtube.com/watch?v=BrQ8iJ_E2mM)
 - [[🔴] Misi Memperbaiki Robot So-Rob! | Bakso Simulator Indonesia #5](https://www.youtube.com/watch?v=BsO6GjKsEIk)
 - [[🔴] Tagihan Tak Henti Berdatangan, NEW GAME SOLUSINYA! | Streamer Life Simulator #3](https://www.youtube.com/watch?v=bY0Tsq5GAXY)
+- [[🔴] UPDATEAN TERBARU! ADA STORY CHAPTER 1 DI BAKSO SIMULATOR! | Bakso Simulator Indonesia #4](https://www.youtube.com/watch?v=94TYpJDYxYM)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
