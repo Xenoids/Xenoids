@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [[🔴] Mencoba Untuk Memenangkan Game Ngeselin Ini! | Stumble Guys Indonesia](https://www.youtube.com/watch?v=9gN9BMegxkI)
 - [[🔴] Mencoba Untuk Menamatkan Game 2 Dimensi Ini! | Growtopia Indonesia](https://www.youtube.com/watch?v=VIWkcX9lAGA)
 - [[🔴] AKU HARUS BERTAHAN 3 MENIT DARI 3 VALAQ.PNG DI BACKROOM! | Garry&#39;s Mod Indonesia](https://www.youtube.com/watch?v=_uf_v74Wk1I)
 - [Kaget Simulator :&rpar; - Garry&#39;s Mod #shorts](https://www.youtube.com/watch?v=w5iTF0iFk30)
 - [[🔴] TOLONGG! AKU DAN @Rio Ihsan DIKEJAR VALAQ.PNG!!! | Garry&#39;s Mod Indonesia](https://www.youtube.com/watch?v=1Ft3ap09asg)
-- [[🔴] Kami Terdampar Di Pulau Yang Besar Dan Terpencil! Ft. @Rio Ihsan  | The Forest Indonesia #1](https://www.youtube.com/watch?v=D7PQNea9wM0)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
