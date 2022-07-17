@@ -48,10 +48,10 @@
 
 <!-- YOUTUBE:START -->
 - [[🔴] Katanya Game Ini Mirip EP EP MAX! Ft. @Rio Ihsan   | Valorant Indonesia](https://www.youtube.com/watch?v=PGDehphyrR8)
-- [[🔴] Kemarin Meng-NT, Sekarang Speed Run Tamat!  | The Forest Indonesia #2](https://www.youtube.com/watch?v=hfvhJYquZNE)
 - [[🔴] Katanya Game Ini Mirip Stumble Ges! COBA KITA TAMATIN!  | Fall Guys Indonesia](https://www.youtube.com/watch?v=4hy5Qs4_iiE)
 - [[🔴] Mencoba Untuk Memenangkan Game Ngeselin Ini! | Stumble Guys Indonesia](https://www.youtube.com/watch?v=9gN9BMegxkI)
 - [[🔴] Mencoba Untuk Menamatkan Game 2 Dimensi Ini! | Growtopia Indonesia](https://www.youtube.com/watch?v=VIWkcX9lAGA)
+- [[🔴] AKU HARUS BERTAHAN 3 MENIT DARI 3 VALAQ.PNG DI BACKROOM! | Garry&#39;s Mod Indonesia](https://www.youtube.com/watch?v=_uf_v74Wk1I)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
