@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
-- [[🔴] Memperbanyak Bitcoin Miners Buat Kaya! | Streamer Life Simulator #4](https://www.youtube.com/watch?v=GKpHvN5jc-I)
 - [[🔴] Nge Chill.](https://www.youtube.com/watch?v=32PNmiLVEmI)
 - [[🔴] Katanya Ada Update Baru Lagi Di Bakso Simulator! | Bakso Simulator Indonesia #6](https://www.youtube.com/watch?v=agseAG6p8Bs)
 - [[🔴] 1 Jam Nontonin Livestream Sendiri. TAMAT!](https://www.youtube.com/watch?v=coo0ILub2ac)
 - [[🔴] Kemarin Meng-NT, Sekarang Kita Speed Run TAMAT! Ft. @Rio Ihsan   | The Forest Indonesia #2](https://www.youtube.com/watch?v=XR0-4etmyrY)
+- [[🔴] Katanya Game Ini Mirip EP EP MAX! Ft. @Rio Ihsan   | Valorant Indonesia](https://www.youtube.com/watch?v=PGDehphyrR8)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
