@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [[🔴] CHAPTER 1 TELAH TAMAT! | Warnet Simulator Indonesia #3](https://www.youtube.com/watch?v=ifEGH7pfFPA)
 - [[🔴] Mencoba Untuk Dapetin Ring Of Nature! | Growtopia Indonesia](https://www.youtube.com/watch?v=2rSAIiF8Sb0)
 - [[🔴] Aku Direkrut Menjadi Tukang Kayu! | Lumber Tycoon 2 #1 | Roblox Indonesia](https://www.youtube.com/watch?v=pXVDgRbOUuA)
 - [[🔴] Memperbanyak Bitcoin Miners Buat Kaya! | Streamer Life Simulator #4](https://www.youtube.com/watch?v=GKpHvN5jc-I)
 - [[🔴] Nge Chill.](https://www.youtube.com/watch?v=32PNmiLVEmI)
-- [[🔴] Katanya Ada Update Baru Lagi Di Bakso Simulator! | Bakso Simulator Indonesia #6](https://www.youtube.com/watch?v=agseAG6p8Bs)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
