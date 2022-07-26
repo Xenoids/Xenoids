@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [[🔴] WALAUPUN MASIH DEMO, GRAFIK 4K GILEEE!  | Troublemaker Indonesia](https://www.youtube.com/watch?v=7uKA15x2mu0)
 - [26 Juli 2022 - Resmi Tamat Menjadi Konten Kreator Growtopia.](https://www.youtube.com/watch?v=FobZjOIYv-o)
 - [[🔴] Menyelesaikan Misteri Rukiry Axe! | Lumber Tycoon 2 #2 | Roblox Indonesia](https://www.youtube.com/watch?v=tqSB0MVOo2s)
 - [[🔴]  AKHIRNYA BAKSO SIMULATOR ADA CHAPTER 1! SPEEDRUN TAMAT! | Bakso Simulator Indonesia #7](https://www.youtube.com/watch?v=pILnH8HJdqQ)
 - [[🔴] Menuju Goa - Goa Untuk Tamatin Game Ini! Ft. @Rio Ihsan | The Forest Indonesia #3](https://www.youtube.com/watch?v=g7_yQOlEZJo)
-- [[🔴] CHAPTER 1 TELAH TAMAT! | Warnet Simulator Indonesia #3](https://www.youtube.com/watch?v=ifEGH7pfFPA)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
