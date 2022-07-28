@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [[🔴] Compe Gaming Sampe Ascendant! Ft. @Rio Ihsan | Valorant Indonesia](https://www.youtube.com/watch?v=4yDl3dD1f5c)
 - [[🔴] Memulai Karir Sebagai Youtuber Di Roblox Youtube Life! | Roblox Youtube Life Indonesia](https://www.youtube.com/watch?v=TJxRoPXmpmQ)
 - [[🔴] WALAUPUN MASIH DEMO, GRAFIK 4K GILEEE!  | Troublemaker Indonesia](https://www.youtube.com/watch?v=7uKA15x2mu0)
 - [[🔴] MENYELAMATKAN TIMMY! LAST EPISODE!!! Ft. @Rio Ihsan  | The Forest Indonesia #END](https://www.youtube.com/watch?v=a5Y8u4ObKHY)
 - [26 Juli 2022 - Resmi Tamat Menjadi Konten Kreator Growtopia.](https://www.youtube.com/watch?v=FobZjOIYv-o)
-- [[🔴] Menyelesaikan Misteri Rukiry Axe! | Lumber Tycoon 2 #2 | Roblox Indonesia](https://www.youtube.com/watch?v=tqSB0MVOo2s)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
