@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [[🔴] HANTUNYA MUNCUL LAGI!! TAPI SEKARANG DIA MATI SELAMANYA!! | Roblox Airplane Story Indonesia #2](https://www.youtube.com/watch?v=5Vi-gUqH9Rg)
 - [[🔴] Katanya Game Ini Seru Untuk Dimainkan! Mari Kita Coba! | Roblox Blox Fruits Indonesia](https://www.youtube.com/watch?v=WfsQqXwBJs8)
 - [[🔴] MAKHLUK MISTERIUS INI SIAPA?! | Roblox Airplane Story Indonesia #1](https://www.youtube.com/watch?v=-saqkYnCkgg)
 - [[🔴] Compe Gaming Sampe Ascendant! Ft. @Rio Ihsan | Valorant Indonesia](https://www.youtube.com/watch?v=4yDl3dD1f5c)
 - [[🔴] Katanya Punix Itu Palsu Ges! Coba Kita Buktikan!! | Growtopia Indonesia](https://www.youtube.com/watch?v=p0SS6e6McO8)
-- [[🔴] Memulai Karir Sebagai Youtuber Di Roblox Youtube Life! | Roblox Youtube Life Indonesia](https://www.youtube.com/watch?v=TJxRoPXmpmQ)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
