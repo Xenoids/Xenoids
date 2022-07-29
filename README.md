@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [[🔴] Lanjutin Quest Suires Demi Dapetin Apartemen! | Bakso Simulator Indonesia #8](https://www.youtube.com/watch?v=3CpkLxYhv7g)
 - [[🔴] MAKHLUK MISTERIUS INI SIAPA?! | Roblox Airplane Story Indonesia #1](https://www.youtube.com/watch?v=-saqkYnCkgg)
 - [[🔴] Compe Gaming Sampe Ascendant! Ft. @Rio Ihsan | Valorant Indonesia](https://www.youtube.com/watch?v=4yDl3dD1f5c)
 - [[🔴] Katanya Punix Itu Palsu Ges! Coba Kita Buktikan!! | Growtopia Indonesia](https://www.youtube.com/watch?v=p0SS6e6McO8)
 - [[🔴] Memulai Karir Sebagai Youtuber Di Roblox Youtube Life! | Roblox Youtube Life Indonesia](https://www.youtube.com/watch?v=TJxRoPXmpmQ)
-- [[🔴] WALAUPUN MASIH DEMO, GRAFIK 4K GILEEE!  | Troublemaker Indonesia](https://www.youtube.com/watch?v=7uKA15x2mu0)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
