@@ -47,7 +47,7 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
-- [[🔴] Akhirnya Bisa Liburan Naik Pesawat Yeyyyy! | Roblox Airplane Story Indonesia #1](https://www.youtube.com/watch?v=-saqkYnCkgg)
+- [[🔴] MAKHLUK MISTERIUS INI SIAPA?! | Roblox Airplane Story Indonesia #1](https://www.youtube.com/watch?v=-saqkYnCkgg)
 - [[🔴] Compe Gaming Sampe Ascendant! Ft. @Rio Ihsan | Valorant Indonesia](https://www.youtube.com/watch?v=4yDl3dD1f5c)
 - [[🔴] Katanya Punix Itu Palsu Ges! Coba Kita Buktikan!! | Growtopia Indonesia](https://www.youtube.com/watch?v=p0SS6e6McO8)
 - [[🔴] Memulai Karir Sebagai Youtuber Di Roblox Youtube Life! | Roblox Youtube Life Indonesia](https://www.youtube.com/watch?v=TJxRoPXmpmQ)
