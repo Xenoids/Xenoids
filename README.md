@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [[🔴] Kembali Ke Jaman Purba 🗿 TAMATIN MINESWEEPER!](https://www.youtube.com/watch?v=EUO_pbTjzgA)
 - [[🔴] Lanjutin Quest Suires Demi Dapetin Apartemen! | Bakso Simulator Indonesia #8](https://www.youtube.com/watch?v=3CpkLxYhv7g)
 - [[🔴] HANTUNYA MUNCUL LAGI!! TAPI SEKARANG DIA MATI SELAMANYA!! | Roblox Airplane Story Indonesia #2](https://www.youtube.com/watch?v=5Vi-gUqH9Rg)
 - [[🔴] Katanya Game Ini Seru Untuk Dimainkan! Mari Kita Coba! | Roblox Blox Fruits Indonesia](https://www.youtube.com/watch?v=WfsQqXwBJs8)
 - [[🔴] MAKHLUK MISTERIUS INI SIAPA?! | Roblox Airplane Story Indonesia #1](https://www.youtube.com/watch?v=-saqkYnCkgg)
-- [[🔴] Compe Gaming Sampe Ascendant! Ft. @Rio Ihsan | Valorant Indonesia](https://www.youtube.com/watch?v=4yDl3dD1f5c)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
