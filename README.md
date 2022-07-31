@@ -47,7 +47,7 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
-- [[🔴] Mari Kita Penuhi Permintaan Fian! | Warnet Simulator Indonesia #4](https://www.youtube.com/watch?v=V_CD4lb6NJw)
+- [[🔴] CHAPTER 2 TAMAT! NAPOS MATI :&lpar;&lpar; | Warnet Simulator Indonesia #4](https://www.youtube.com/watch?v=V_CD4lb6NJw)
 - [[🔴] Kembali Ke Jaman Purba 🗿 TAMATIN MINESWEEPER!](https://www.youtube.com/watch?v=EUO_pbTjzgA)
 - [[🔴] Lanjutin Quest Suires Demi Dapetin Apartemen! | Bakso Simulator Indonesia #8](https://www.youtube.com/watch?v=3CpkLxYhv7g)
 - [[🔴] HANTUNYA MUNCUL LAGI!! TAPI SEKARANG DIA MATI SELAMANYA!! | Roblox Airplane Story Indonesia #2](https://www.youtube.com/watch?v=5Vi-gUqH9Rg)
