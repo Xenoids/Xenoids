@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [[🔴] Aku Pengen Dapetin Truk Besar! | Lumber Tycoon 2 #3 | Roblox Indonesia](https://www.youtube.com/watch?v=ytRDTvNyQLA)
 - [[🔴] MENGAWASI BONEKA YANG IMUT IMUT!! IMUT BANGETT | Five Night at Freddy&#39;s Indonesia](https://www.youtube.com/watch?v=FijPNK-siak)
 - [[🔴] Rapi Rapiin Tempat Bisnis Bakso Aku! | Bakso Simulator Indonesia #9](https://www.youtube.com/watch?v=swbqEEyoS8c)
 - [[🔴] Warnet Ku Sudah Mantep! Dan Lanjutin Chapter 3! | Warnet Simulator Indonesia #5](https://www.youtube.com/watch?v=VG8ZlqIz6gw)
 - [[🔴] CHAPTER 2 TAMAT! NAPOS MATI :&lpar;&lpar; | Warnet Simulator Indonesia #4](https://www.youtube.com/watch?v=V_CD4lb6NJw)
-- [[🔴] Kembali Ke Jaman Purba 🗿 TAMATIN MINESWEEPER!](https://www.youtube.com/watch?v=EUO_pbTjzgA)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
