@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [[🔴] TERNYATA SELAMA INI MAJEK MENIPU KITA! CHAPTER 1 TAMAT! | Bakso Simulator Indonesia #10](https://www.youtube.com/watch?v=uo-xjlzBbOE)
 - [[🔴] MAIN KEJAR KEJARAN DENGAN GAMBAR IMUT DI ROBLOX! | Nico&#39;s Nextbots | Roblox Indonesia](https://www.youtube.com/watch?v=ahQoH1a9NOI)
 - [[🔴] NGECHILL MALMING YEKAN..](https://www.youtube.com/watch?v=M9l0S5QPrGk)
 - [[🔴] Anak Emas Minta SP? Apaan Nihhh.. | Warnet Life Indonesia #6](https://www.youtube.com/watch?v=W7z24qTXOE4)
 - [[🔴] Aku Pengen Dapetin Truk Besar! | Lumber Tycoon 2 #3 | Roblox Indonesia](https://www.youtube.com/watch?v=ytRDTvNyQLA)
-- [[🔴] MENGAWASI BONEKA YANG IMUT IMUT!! IMUT BANGETT | Five Night at Freddy&#39;s Indonesia](https://www.youtube.com/watch?v=FijPNK-siak)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
