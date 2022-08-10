@@ -47,7 +47,7 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
-- [[🔴] Bermain Babu Simulator Lagi... Bener&quot; Jadi Babu :&#39;&rpar; | Warnet Life Indonesia #7](https://www.youtube.com/watch?v=FyK_HRVFbmI)
+- [[🔴] CHAPTER 3 WARNET LIFE TAMAT! | Warnet Life Indonesia #7](https://www.youtube.com/watch?v=FyK_HRVFbmI)
 - [[🔴] TERNYATA SELAMA INI MAJEK MENIPU KITA! CHAPTER 1 TAMAT! | Bakso Simulator Indonesia #10](https://www.youtube.com/watch?v=uo-xjlzBbOE)
 - [[🔴] MAIN KEJAR KEJARAN DENGAN GAMBAR IMUT DI ROBLOX! | Nico&#39;s Nextbots | Roblox Indonesia](https://www.youtube.com/watch?v=ahQoH1a9NOI)
 - [[🔴] NGECHILL MALMING YEKAN..](https://www.youtube.com/watch?v=M9l0S5QPrGk)
