@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [[🔴] Ada Quest Sampingan Terbaru Di Bakso Simulator! | Bakso Simulator Indonesia #11](https://www.youtube.com/watch?v=Hr2AjtfNEcs)
 - [[🔴] Dapetin Duit Demi Membeli Apartemen Impian! | Streamer Life Simulator #5](https://www.youtube.com/watch?v=aOS7fmMmlw8)
 - [[🔴] CHAPTER 3 WARNET LIFE TAMAT! | Warnet Life Indonesia #7](https://www.youtube.com/watch?v=FyK_HRVFbmI)
 - [[🔴] TERNYATA SELAMA INI MAJEK MENIPU KITA! CHAPTER 1 TAMAT! | Bakso Simulator Indonesia #10](https://www.youtube.com/watch?v=uo-xjlzBbOE)
 - [[🔴] MAIN KEJAR KEJARAN DENGAN GAMBAR IMUT DI ROBLOX! | Nico&#39;s Nextbots | Roblox Indonesia](https://www.youtube.com/watch?v=ahQoH1a9NOI)
-- [[🔴] NGECHILL MALMING YEKAN..](https://www.youtube.com/watch?v=M9l0S5QPrGk)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
