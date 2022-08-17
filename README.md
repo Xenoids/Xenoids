@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [[🔴] CHAPTER 4 TAMAT! | Warnet Life Indonesia #8](https://www.youtube.com/watch?v=hO-f_gd86Sk)
 - [[🔴] REMATCH! MENTAL BUKAN BUBUR NIH BOSS | Mortuary Asisstant Indonesia](https://www.youtube.com/watch?v=l-KDiKz_7HY)
 - [[🔴] Mencoba Game 2D Buatan Abang Dan Teman Teman! | Knight Adventura Indonesia](https://www.youtube.com/watch?v=L_SALf2xT7w)
 - [[🔴] Menjadi Pengurus Mayat! | Mortuary Asisstant Indonesia](https://www.youtube.com/watch?v=c1aROnjwrlI)
 - [[🔴] Tutorial Provokasi Ada Di Sini :v | We Become What We Behold Indonesia](https://www.youtube.com/watch?v=QqLAh0rpXnc)
-- [[🔴] Ada Quest Sampingan Terbaru Di Bakso Simulator! | Bakso Simulator Indonesia #11](https://www.youtube.com/watch?v=Hr2AjtfNEcs)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
