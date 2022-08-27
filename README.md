@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
-- [[🔴] Tidak Perlu Ditekan Livestream Ini :v](https://www.youtube.com/watch?v=j5U9_bvX-l8)
-- [[🔴] CHAPTER 4 TAMAT! | Warnet Life Indonesia #8](https://www.youtube.com/watch?v=hO-f_gd86Sk)
-- [[🔴] REMATCH! MENTAL BUKAN BUBUR NIH BOSS | Mortuary Asisstant Indonesia](https://www.youtube.com/watch?v=l-KDiKz_7HY)
-- [[🔴] Mencoba Game 2D Buatan Abang Dan Teman Teman! | Knight Adventura Indonesia](https://www.youtube.com/watch?v=L_SALf2xT7w)
-- [[🔴] Menjadi Pengurus Mayat! | Mortuary Asisstant Indonesia](https://www.youtube.com/watch?v=c1aROnjwrlI)
+- [[🔴] Katanya Punix Itu Palsu Ges! Coba Kita Buktikan!! | Growtopia Indonesia](https://www.youtube.com/watch?v=p0SS6e6McO8)
+- [26 Juli 2022 - Resmi Tamat Menjadi Konten Kreator Growtopia.](https://www.youtube.com/watch?v=FobZjOIYv-o)
+- [[🔴] Mencoba Untuk Dapetin Ring Of Nature! | Growtopia Indonesia](https://www.youtube.com/watch?v=2rSAIiF8Sb0)
+- [TEMAN GUA PASANG CRIME, GUA YANG BERSIHIN, LALU GUA TARO CRIME LAGI WKWK! Pt.7 | Growtopia Indonesia](https://www.youtube.com/watch?v=rAIg36Afn8E)
+- [🔴 semua gara gara erik](https://www.youtube.com/watch?v=oyF5Miot8WE)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
