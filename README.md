@@ -47,11 +47,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [MASSING DENGAN APK BARU??? | Road To Modern #2 | Growtopia Indonesia](https://www.youtube.com/watch?v=plsHxttdNMQ)
 - [SAATNYA MENYESUAIKAN DIRI!! | Road To Modern #1 | Growtopia Indonesia](https://www.youtube.com/watch?v=XpxctxVLank)
 - [Gua Kembali! Tapi... | Growtopia Indonesia](https://www.youtube.com/watch?v=yYL9cSaXG90)
 - [[🔴] Katanya Punix Itu Palsu Ges! Coba Kita Buktikan!! | Growtopia Indonesia](https://www.youtube.com/watch?v=p0SS6e6McO8)
 - [26 Juli 2022 - Resmi Tamat Menjadi Konten Kreator Growtopia.](https://www.youtube.com/watch?v=FobZjOIYv-o)
-- [[🔴] Mencoba Untuk Dapetin Ring Of Nature! | Growtopia Indonesia](https://www.youtube.com/watch?v=2rSAIiF8Sb0)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
