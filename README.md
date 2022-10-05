@@ -6,11 +6,13 @@
 <br></br>
 <table align="right" border="1px" margin-top="50px">
   <tr>
-    <th>That's my UwU</th>
+    <th>That's Me in Virtual ^o^</th>
   </tr>
   <tr>
     <td>
-    <img src="https://static.zerochan.net/Izanami.Kyouko.full.3018657.png" width="150" height="200" align="right" />
+     <!--img src="https://static.zerochan.net/Izanami.Kyouko.full.3018657.png" width="150" height="200" align="right" /-->
+    <img src="https://user-images.githubusercontent.com/71064059/194039001-ffb6aa76-f452-4316-8e68-52298b6407d2.png" width="300" height="256" align="right" />
+
     </td>
   </tr>
   </table>
