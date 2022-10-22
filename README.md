@@ -49,11 +49,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Gua Testing Profit Modal Kecil berujung CUANNN!! | Growtopia Indonesia](https://www.youtube.com/watch?v=jYE4rWSEHAk)
 - [Persiapan Halloween dan Maw Surf Challenge! | Growtopia Indonesia](https://www.youtube.com/watch?v=01PfXn0M9ZE)
 - [HASIL AKHIR MASS TANGRAM! BERAPA YAH PROFITNYA?? | Road To Modern #7  | Growtopia Indonesia](https://www.youtube.com/watch?v=2SyHeASkenc)
 - [BINGUNG MASS APA? GACHA SOLUSINYA!!! | Road To Modern #6 | Growtopia Indonesia](https://www.youtube.com/watch?v=SP9GUnqAVok)
 - [GUA PROFITAN NGEGHOST TAPI MULTIPLAYER! | Road To Modern #5 | Growtopia Indonesia](https://www.youtube.com/watch?v=gtn77fVToj0)
-- [GUA MENGGACHA SAMBIL MUKBANG MOONCAKE! | Road To Modern #4 | Growtopia Indonesia](https://www.youtube.com/watch?v=gY1KSaQo0Go)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
