@@ -49,11 +49,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Gua Mendesign Main World Pertama + Tutor World Planner!! |  Growtopia Indonesia](https://www.youtube.com/watch?v=c3YYO5TaXL0)
 - [Perbandingan Profit bermodal 1WL!!! |  Growtopia Indonesia](https://www.youtube.com/watch?v=1dNlFEh3AWo)
 - [Akhirnya bisa ikut main drop game juga... |  Growtopia Indonesia](https://www.youtube.com/watch?v=q_ws0iauiGs)
 - [Gua Testing Profit Modal Kecil berujung CUANNN!! | Growtopia Indonesia](https://www.youtube.com/watch?v=jYE4rWSEHAk)
 - [Persiapan Halloween dan Maw Surf Challenge! | Growtopia Indonesia](https://www.youtube.com/watch?v=01PfXn0M9ZE)
-- [HASIL AKHIR MASS TANGRAM! BERAPA YAH PROFITNYA?? | Road To Modern #7  | Growtopia Indonesia](https://www.youtube.com/watch?v=2SyHeASkenc)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
