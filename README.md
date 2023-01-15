@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning C - Data Structure, Java and C# Programming Language ( For Unity )
 - 💞️ I’m looking to collaborate on (not rn still learning probably when i want to lol)
 <br></br>
-<table align="right" border="1px" margin-top="20px">
+<table align="right" border="1px" margin-top="20px" width="20%">
   <tr>
     <th>That's Me in Virtual ^o^</th>
   </tr>
