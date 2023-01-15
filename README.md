@@ -11,7 +11,7 @@
   <tr>
     <td>
      <!--img src="https://static.zerochan.net/Izanami.Kyouko.full.3018657.png" width="150" height="200" align="right" /-->
-    <img src="https://user-images.githubusercontent.com/71064059/194039001-ffb6aa76-f452-4316-8e68-52298b6407d2.png" width="253" height="256" align="right" />
+    <img src="https://user-images.githubusercontent.com/71064059/194039001-ffb6aa76-f452-4316-8e68-52298b6407d2.png" width="250" height="256" align="right" />
     </td>
   </tr>
   </table>
