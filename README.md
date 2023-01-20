@@ -55,14 +55,14 @@
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
 
 <div align="center">
-<img src="https://github-readme-stats.vercel.app/api?username=Xenoids&theme=radical&show_icons=true"> 
+<img src="https://github-readme-stats-ruby.one.vercel.app/api?username=Xenoids&theme=radical&show_icons=true"> 
 </div>
 
 </br>
 
 <div align="center">
 <a href="https://github.com/anuraghazra/github-readme-stats">
-  <img src="https://github-readme-stats.vercel.app/api/top-langs/?username=Xenoids&layout=compact">
+  <img src="https://github-readme-stats-ruby-one.vercel.app/api/top-langs/?username=Xenoids&layout=compact">
 </div>
           
 # [<img align ="left" width ="40px" src="https://simpleicons.org/icons/spotify.svg"/>][spotify]𝓡𝓮𝓬𝓮𝓷𝓽 𝓟𝓵𝓪𝔂𝓲𝓷𝓰 𝓢𝓸𝓷𝓰:
