@@ -60,11 +60,16 @@
 
 </br>
 
+[![trophy](https://github-profile-trophy.vercel.app/?username=Xenoids&row=1&column=8&margin-w=15&theme=dracula)](https://github.com/ryo-ma/github-profile-trophy)
+  
+</br>
+ 
 <div align="center">
 <a href="https://github.com/anuraghazra/github-readme-stats">
   <img src="https://github-readme-stats.vercel.app/api/top-langs/?username=Xenoids&layout=compact">
 </div>
-          
+  
+            
 # [<img align ="left" width ="40px" src="https://simpleicons.org/icons/spotify.svg"/>][spotify]𝓡𝓮𝓬𝓮𝓷𝓽 𝓟𝓵𝓪𝔂𝓲𝓷𝓰 𝓢𝓸𝓷𝓰:
 
 <p>
