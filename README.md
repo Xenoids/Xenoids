@@ -65,7 +65,6 @@
 
 [![trophy](https://github-profile-trophy.vercel.app/?username=Xenoids&row=1&column=8&margin-w=15&theme=dracula)](https://github.com/ryo-ma/github-profile-trophy)
   
-</br>
  
 <!-- <div align="center">
 
@@ -84,7 +83,7 @@
   <a href="https://myanimelist.net/anime/41930/Kamisama_ni_Natta_Hi">
   I Love to listen japanese music especially Anime and Tokusatsu :D</br>
   Could be Opening, Ending & OST ~</br>
-  Favorite Anime? Clannad & Kamisama Ni Natta Hi >.<</br> 
+  Favorite Anime? Clannad & Kamisama Ni Natta Hi</br> 
   Favorite Tokusatsu? Ultraman Zero, Nexus & Ex-Aid ^0^
 </p>
 
@@ -100,7 +99,7 @@
    
  <!---Reference--->                                      
 [youtube]: https://www.youtube.com/TanKnight
-[linkedin]: https://id.linkedin.com/in/nicholas-valenthinus-tanoto-0ab0a61b7
+[linkedin]: https://id.linkedin.com/in/xenoids
 [tiktok]:https://www.tiktok.com/@tanknightgt
 [github]:https://www.github.com/Xenoids
 [spotify]: https://open.spotify.com/user/31yp5jq7iowjpve2m3y4hcc7qdc4?si=fZtZ3fhARxS03W43B6HwiQ
