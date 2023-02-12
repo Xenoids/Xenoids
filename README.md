@@ -45,11 +45,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
-- [tankenek mau beli growtopia for 4000 gbc](https://www.youtube.com/watch?v=1tL8XkxhZqc)
 - [Profit Winterfest Modal Sedikit sambil Ngetroll!!! |  Growtopia Indonesia](https://www.youtube.com/watch?v=8sN8BZcZcmg)
 - [Gua Kelupaan Password Akun Sendiri... |  Growtopia Indonesia](https://www.youtube.com/watch?v=v6EIBJv6sBM)
 - [Gua Mendesign Main World Pertama + Tutor World Planner!! |  Growtopia Indonesia](https://www.youtube.com/watch?v=c3YYO5TaXL0)
 - [Perbandingan Profit bermodal 1WL!!! |  Growtopia Indonesia](https://www.youtube.com/watch?v=1dNlFEh3AWo)
+- [Akhirnya bisa ikut main drop game juga... |  Growtopia Indonesia](https://www.youtube.com/watch?v=q_ws0iauiGs)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
