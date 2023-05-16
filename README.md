@@ -100,7 +100,7 @@
  <!---Reference--->                                      
 [youtube]: https://www.youtube.com/TanKnight
 [linkedin]: https://id.linkedin.com/in/xenoids
-[tiktok]:https://www.tiktok.com/@tanknightgt
+[tiktok]:https://www.tiktok.com/@xenoids
 [github]:https://www.github.com/Xenoids
 [spotify]: https://open.spotify.com/user/31yp5jq7iowjpve2m3y4hcc7qdc4?si=fZtZ3fhARxS03W43B6HwiQ
 [C]: https://en.wikipedia.org/wiki/C_(programming_language)
