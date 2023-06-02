@@ -45,11 +45,11 @@
 <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
+- [Bermain Game Seru Yang Sedang Berulang Tahun Bersama @RioIhsan |  Valorant Indonesia](https://www.youtube.com/watch?v=VlytcJUGm88)
 - [Gua Ngetroll World Casino sambil Ngemis Ngakak! WKWKWK Pt.6 |  Growtopia Indonesia](https://www.youtube.com/watch?v=ki18b71PzUs)
 - [tankenek mau beli growtopia for 4000 gbc](https://www.youtube.com/watch?v=1tL8XkxhZqc)
 - [Profit Winterfest Modal Sedikit sambil Ngetroll!!! |  Growtopia Indonesia](https://www.youtube.com/watch?v=8sN8BZcZcmg)
 - [Gua Kelupaan Password Akun Sendiri... |  Growtopia Indonesia](https://www.youtube.com/watch?v=v6EIBJv6sBM)
-- [Gua Mendesign Main World Pertama + Tutor World Planner!! |  Growtopia Indonesia](https://www.youtube.com/watch?v=c3YYO5TaXL0)
 <!-- YOUTUBE:END -->
 
 <h2 align="center">📈 ~ 𝓜𝔂 𝓢𝓽𝓪𝓽𝓼 ~ 📈</h2>
