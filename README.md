@@ -21,7 +21,7 @@
 
 <h2 align="center">🌐 ~ 𝓒𝓸𝓷𝓷𝓮𝓬𝓽 𝓦𝓲𝓽𝓱 𝓤𝓼! ~ 🌐</h2>
 
-[<img align="left" alt="Tan Knight | Youtube" width="30px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/youtube.svg" />][youtube]
+<!-- [<img align="left" alt="Tan Knight | Youtube" width="30px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/youtube.svg" />][youtube] -->
 [<img align="left" alt="Tan Knight | Linkedin" width="30px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/linkedin.svg" />][linkedin]
 [<img align="left" alt="Tan Knight | Tiktok" width="30px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/tiktok.svg" />][tiktok]
 [<img align="left" alt="Tan Knight | Github" width="30px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/github.svg" />][github]
@@ -42,10 +42,10 @@
 </br>
 </br>
 
-<h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
+<!-- <h2 align="center">📺 ~ 𝒪𝓊𝓇 𝒴𝑜𝓊𝓉𝓊𝒷𝑒 𝒱𝒾𝒹𝑒𝑜𝓈 [ 𝒰𝓅𝒹𝒶𝓉𝑒𝒹 ] ~ 📺</h2>
 
 <!-- YOUTUBE:START -->
-- [Jangan nonton video ini! Dijamin anda akan menyesal!](https://www.youtube.com/watch?v=h43G9U2OVI8)
+<!-- [Jangan nonton video ini! Dijamin anda akan menyesal!](https://www.youtube.com/watch?v=h43G9U2OVI8)
 - [Gua Ngetroll World Casino sambil Ngemis Ngakak! WKWKWK Pt.6 |  Growtopia Indonesia](https://www.youtube.com/watch?v=ki18b71PzUs)
 - [tankenek mau beli growtopia for 4000 gbc](https://www.youtube.com/watch?v=1tL8XkxhZqc)
 - [Profit Winterfest Modal Sedikit sambil Ngetroll!!! |  Growtopia Indonesia](https://www.youtube.com/watch?v=8sN8BZcZcmg)
@@ -98,7 +98,7 @@
   </div>
    
  <!---Reference--->                                      
-[youtube]: https://www.youtube.com/TanKnight
+<!-- [youtube]: https://www.youtube.com/xenoidsknight -->
 [linkedin]: https://id.linkedin.com/in/xenoids
 [tiktok]:https://www.tiktok.com/@xenoids
 [github]:https://www.github.com/Xenoids
